@@ -186,6 +186,4 @@ And so, Arcturus found himself in a new chapter of his long life, not as a warri
   <img src="https://github.com/user-attachments/assets/3204d642-5d5f-4cd5-a8b7-a126a4bdc49a" 
      alt="Mythical Story Image" 
      style="display: block; margin-left: auto; margin-right: auto; max-width: 100%;">
-  <footer>
-    <a href="characters.md">Back to Characters</a>
-  </footer>
+  [Back to Characters](characters.md)
