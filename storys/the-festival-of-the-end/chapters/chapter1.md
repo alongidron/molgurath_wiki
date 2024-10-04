@@ -1,4 +1,4 @@
-# Chapter 1 - The Festival of the End
+# Chapter 1 - 
 
 ---
 
