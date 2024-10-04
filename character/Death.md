@@ -38,6 +38,4 @@ The god of the abyss was unexpectedly friendly until the god of chaos decided to
 
 ![Mythical Story Image](https://github.com/user-attachments/assets/3d821176-1c13-4eb9-81fb-871cf26c9dab)
 
-  <footer>
-    <a href="characters.md">Back to Characters</a>
-  </footer>
+ [Back to Characters](characters.md)
