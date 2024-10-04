@@ -5,3 +5,6 @@ google_analytics:
 theme: jekyll-theme-merlot
 permalink: pretty
 markdown: kramdown
+include:
+  - "_pages"
+  - "*.html"
