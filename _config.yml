@@ -3,8 +3,3 @@ description: A comprehensive guide to the Monstrum universe.
 show_downloads: false
 google_analytics: 
 theme: jekyll-theme-merlot
-permalink: pretty
-markdown: kramdown
-include:
-  - "_pages"
-  - "*.html"
