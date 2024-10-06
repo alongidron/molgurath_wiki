@@ -10,5 +10,4 @@ Not all second gods consider themselves gods, and not all of them have important
 
 ---
 
-[Back to Characters](../characters.md)
-characters/second-gods.md
+[Back to Characters](characters.md)
