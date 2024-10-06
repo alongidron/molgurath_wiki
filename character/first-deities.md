@@ -8,9 +8,9 @@ some of The Supreme Deities have the most important roles, so Monstrum made sure
 
 ## Characters
 ### - [Death](first-deities/death.md) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Life](Life.md)
-### - [Time](Time.md)
-### - [Life](Life.md)
-### - [God](God.md)
+### - [Time](first-deities/Time.md)
+### - [Life](first-deities/Life.md)
+### - [God](first-deities/God.md)
 ### - [Yeng and Yen](first-deities/Yeng_and_Yen.md)  &nbsp;&nbsp;&nbsp;   [The dragon of the end](first-deities/The_dragon_of_the_end.md)
 ### - [Tarasks](first-deities/Tarasks.md)
 ---
