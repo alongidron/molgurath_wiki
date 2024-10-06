@@ -10,8 +10,7 @@ Explore the key events and stories of the mythical world.
 
 ## Navigation
 
-- [Home](index.md)
-- [Characters](character/characters.md)
+## [Home](index.md) &nbsp;&nbsp;&nbsp; [Characters](character/characters.md)
 
 ---
 
