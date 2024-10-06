@@ -10,8 +10,8 @@ Explore the key events and stories of the mythical world.
 
 ## Navigation
 
-- [Home](index.md)
-- [Characters](characters.md)
+- [Home](index.html)
+- [Characters](characters.html)
 
 ---
 
@@ -22,4 +22,4 @@ Explore the key events and stories of the mythical world.
 
 ---
 
-[Back to Home](index.md)
+[Back to Home](index.html)
