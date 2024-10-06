@@ -12,4 +12,4 @@ Gaster seemed a bit defensive as he responded to Lily's complaints, "Are you don
 
 - [Next Chapter](chapter3.md)
 - [Back to The Festival of the End](the-festival-of-the-end.md)
-- [Back to Stories](../../stories.md)
+- [Back to Stories](../../storyline.md)
