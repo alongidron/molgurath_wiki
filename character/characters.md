@@ -39,4 +39,4 @@ Not all the second gods consider themselves gods, and not all of them have impor
 
 ---
 
-[Back to Home](index.md)
+[Back to Home](../index.md)
