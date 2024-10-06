@@ -1,4 +1,4 @@
-# Death - Monstrum Wiki
+# Monstrum Wiki
 
 ## Death
 
