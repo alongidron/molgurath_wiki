@@ -23,6 +23,4 @@ Explore the key events and stories of the mythical world.
 
 ---
 
-## Footer
-
-&copy; 2024 Monstrum Wiki
+[Back to Home](../index.md)
