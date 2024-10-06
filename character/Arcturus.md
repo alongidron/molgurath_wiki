@@ -183,11 +183,7 @@ In a moment of unexpected generosity, the guardian offered Arcturus a place to s
 
 And so, Arcturus found himself in a new chapter of his long life, not as a warrior or a cursed mage, but as a companion in the guardian’s peaceful realm.
 
-  <img src="https://github.com/user-attachments/assets/3204d642-5d5f-4cd5-a8b7-a126a4bdc49a" 
-     alt="Mythical Story Image" 
-     style="display: block; margin-left: auto; margin-right: auto; max-width: 100%;">
-
-[Back to Characters](characters.md)
+ ![Mythical Story Image](https://github.com/user-attachments/assets/33bba095-23dc-462f-b08e-636b5344e000)
 
 
 
