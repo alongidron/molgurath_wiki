@@ -13,8 +13,7 @@ Meet the characters of Monstrum.
 
 ## Navigation
 
-## - [Home](../index.md)
-## - [Storyline](../storyline.md)
+## [Home](../index.md) &nbsp;&nbsp;&nbsp; [Storyline](../storyline.md)
 
 ---
 
