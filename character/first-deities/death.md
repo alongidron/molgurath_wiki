@@ -36,4 +36,4 @@ The god of the abyss was unexpectedly friendly until the god of chaos decided to
 
 ---
 
-[Back to Characters](../character/characters.md)
+[Back to Characters](../character/first-deities.md)
