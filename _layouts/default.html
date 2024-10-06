@@ -1,5 +1,3 @@
-<!DOCTYPE html>
-<html lang="{{ site.lang | default: "en-US" }}">
   <head>
     <meta charset='utf-8'>
     <meta http-equiv="X-UA-Compatible" content="IE=edge">
@@ -23,10 +21,9 @@
 {% include head-custom.html %}
   </head>
 
- <body>
-    <a id="forkme_banner" href</a>
+  <body>
+    <a id="forkme_banner" href="{{ site.github.repository_url }}">View on GitHub</a>
     <div class="shell">
-
 
       <header>
         <div class="ribbon-outer">
@@ -58,8 +55,9 @@
 
       <section id="main_content">
         {{ content }}
-      </section>
+     </section>
 
+      
      <footer>
   
 </footer>
