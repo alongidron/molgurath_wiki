@@ -5,8 +5,8 @@ title: Monstrum Guide
 
 # Monstrum Guide
 ## Explore the Guide
-- [Characters](characters)
-- [Storyline](storyline)
+- [Characters](character/characters.md)
+- [Storyline](storyline.md)
 
 
 ## Welcome to Monstrum Guide Wiki
