@@ -35,7 +35,7 @@ After a long period of peace, the new gods who had replaced God—Nephilis, Luna
 
 ![Mythical Story Image](https://github.com/user-attachments/assets/78b4ff84-4152-4fc2-aa0a-94b92ff4d015)
 ---
-[Back to Characters](characters.md)
+[Back to Characters](../first-deities.md)
 
 
 
