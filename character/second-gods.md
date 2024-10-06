@@ -6,7 +6,7 @@ The second gods were made by the first deities, the dragons, or by Monstrum. The
 Not all second gods consider themselves gods, and not all of them have important duties, but they are all very powerful creatures.
 
 ## Characters
-## [Arcturus](second-gods/Arcturus.md)
+### [Arcturus](second-gods/Arcturus.md)
 
 ---
 
