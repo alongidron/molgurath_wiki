@@ -11,7 +11,7 @@ some of The Supreme Deities have the most important roles, so Monstrum made sure
 ### - [Time](Time.md)
 ### - [Life](Life.md)
 ### - [God](God.md)
-### - [Yeng and Yen](first-deities/Yeng_and_Yen.md)  &nbsp;&nbsp;&nbsp;   [The dragon of the endn](first-deities/The_dragon_of_the_end.md)
+### - [Yeng and Yen](first-deities/Yeng_and_Yen.md)  &nbsp;&nbsp;&nbsp;   [The dragon of the end](first-deities/The_dragon_of_the_end.md)
 ### - [Tarasks](first-deities/Tarasks.md)
 ---
 
