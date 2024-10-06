@@ -11,5 +11,5 @@ Gaster seemed a bit defensive as he responded to Lily's complaints, "Are you don
 ## Navigation
 
 - [Next Chapter](chapter3.md)
-- [Back to The Festival of the End](index.md)
+- [Back to The Festival of the End](the-festival-of-the-end.md)
 - [Back to Stories](../../stories.md)
