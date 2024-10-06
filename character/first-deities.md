@@ -1,10 +1,10 @@
 ---
 permalink: /characters/first-deities
 ---
-# First Deities - Monstrum Wiki
+# Supreme Deities - Monstrum Wiki
 
-The first deities are the most powerful creatures in Monstrum. Monstrum created them to entertain himself because he is just a planet and enjoys watching the creatures living on him.  
-The first deities have the most important roles, so Monstrum made sure they would be unkillable. If they somehow die, there will be a major catastrophe in the world.
+The Supreme Deities are the most powerful creatures in Monstrum. Monstrum created some of them to entertain himself because he is just a planet and enjoys watching the creatures living on him and some got trop by him.   
+some of The Supreme Deities have the most important roles, so Monstrum made sure they would be unkillable. If they somehow die, there will be a major catastrophe in the world.
 
 ## Characters
 - [Death](first-deities/death.md)
