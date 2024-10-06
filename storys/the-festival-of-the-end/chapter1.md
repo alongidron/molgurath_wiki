@@ -24,4 +24,6 @@ As the silence in the room stretched on, Gaster began to wonder if his own thirs
 
 ---
 
-[Next Chapter →](./Chapter2.md) | [Back to Stories](../index.md) | [Switch to Father Crow History](../Father_Crow_History/Chapter1.md)
+- [Next Chapter](chapter2.md)
+- [Back to The Festival of the End](index.md)
+- [Back to Stories](../../stories.md)
