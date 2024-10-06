@@ -13,8 +13,8 @@ Meet the characters of Monstrum.
 
 ## Navigation
 
-- [Home](../index.md)
-- [Storyline](../storyline.md)
+- [Home](index.md)
+- [Storyline](storyline.md)
 
 ---
 
@@ -39,4 +39,4 @@ Not all the second gods consider themselves gods, and not all of them have impor
 
 ---
 
-[Back to Home](../index.md)
+[Back to Home](index.md)
