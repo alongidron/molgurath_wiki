@@ -23,4 +23,4 @@ Explore the key events and stories of the mythical world.
 
 ---
 
-[Back to Home](../index.md)
+[Back to Home](index.md)
