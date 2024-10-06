@@ -1,12 +1,12 @@
 ---
 permalink: /characters
 ---
-# Characters - Mythical Story Wiki
+# Characters - Monstrum Wiki
 
-## Header
+---
 
 **Characters**  
-Meet the characters of the mythical world.
+Meet the characters of Monstrum.
 
 ---
 
