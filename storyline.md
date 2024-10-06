@@ -17,7 +17,7 @@ Explore the key events and stories of the mythical world.
 
 ## Stories
 
-- [The Festival of the End](../stories/festival-of-the-end/index.md)
+- [The Festival of the End](../storys/the-festival-of-the-end/the-festival-of-the-end.md)
 - [Father Crow History](../stories/father-crow-history/index.md)
 
 ---
