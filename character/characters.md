@@ -25,7 +25,7 @@ Meet the characters of Monstrum.
 The first deities are the most powerful creatures in Monstrum. Monstrum creates them to entertain himself because, after all, he is just a planet, so he can't really do much besides enjoy seeing the creatures living on him.  
 The first deities have the most important roles, so Monstrum made sure they would be unkillable. If they somehow die, there will be a major catastrophe in the world.
 
-- [Death](character/Death.md)
+- [Death](../character/Death.md)
 - [Time](character/Time.md)
 - [Life](character/Life.md)
 - [God](character/God.md)
