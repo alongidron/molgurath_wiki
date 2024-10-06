@@ -26,4 +26,4 @@ As the silence in the room stretched on, Gaster began to wonder if his own thirs
 
 - [Next Chapter](chapter2.html)
 - [Back to The Festival of the End](index.html)
-- [Back to Stories](../../stories.html)
+- [Back to Stories](../../storyline.html)
