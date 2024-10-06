@@ -11,4 +11,4 @@ In their dormant state, the Tarasks reside deep within the core of the planet, w
 
 ![Mythical Story Image](https://github.com/user-attachments/assets/fa1aa6f8-8054-4170-8e0a-f1c49f2c58f6)
 ---
-[Back to Characters](characters.md)
+[Back to Characters](../first-deities.md)
