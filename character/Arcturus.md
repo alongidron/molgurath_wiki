@@ -1,4 +1,4 @@
-# Arcturus - Mythical Story Wiki
+# Arcturus - Monstrum Wiki
 
 ## Arcturus
 
@@ -6,7 +6,6 @@
 
 ---
 
-### Story
 
 - **Age:** Unknown   
 - **Size:** 1.7 meters  
