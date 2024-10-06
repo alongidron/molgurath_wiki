@@ -38,6 +38,4 @@ Not all the second gods consider themselves gods, and not all of them have impor
 
 ---
 
-## Footer
-
-&copy; 2024 Monstrum Wiki
+[Back to Index](../README.md)
