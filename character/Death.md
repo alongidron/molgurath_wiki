@@ -1,12 +1,8 @@
-# Death - Mythical Story Wiki
+# Death - Monstrum Wiki
 
 ## Death
 
-**The Death Itself**
-
 ---
-
-### Story
 
 - **Age:** Unknown (old)  
 - **Size:** 2.8 meters  
@@ -37,5 +33,7 @@ The god of the abyss was unexpectedly friendly until the god of chaos decided to
 
 
 ![Mythical Story Image](https://github.com/user-attachments/assets/c63c3466-128e-40d8-96dc-089d15a6ad29)
+
+---
 
  [Back to Characters](characters.md)
