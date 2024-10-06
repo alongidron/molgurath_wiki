@@ -18,10 +18,9 @@ Meet the characters of Monstrum.
 ---
 
 ## Characters
-## - [Monstrum](../character/Monstrum.md)
-## - [Supreme Deities](../character/first-deities.md)
-## - [The Second Gods](../characters/second-gods.md)
-- 
+##  [Monstrum](../character/Monstrum.md)
+##  [Supreme Deities](../character/first-deities.md)
+##  [The Second Gods](../characters/second-gods.md)
 ---
 
 [Back to Home](../index.md)
