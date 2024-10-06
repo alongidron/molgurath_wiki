@@ -83,3 +83,8 @@ The establishment of regular summits was agreed upon to maintain open lines of c
 The summits would also facilitate discussions on collective security, economic cooperation, and provide updates on how each Overworld Lord was faring.
 
 This comprehensive treaty aimed not only to adjust the political landscape but also to ensure a collective defense and a prosperous coexistence under the looming presence and unpredictable influence of the Guardian. By fostering a unified front and encouraging diplomatic engagement, Bell's vision sought to usher in a new era of stability and growth for the realms of Grymmwald, guiding the Lords away from their previously fractious and conflict-driven interactions.
+![Mythical Story Image](https://github.com/user-attachments/assets/3bb30574-ffe6-41a4-9d66-8565d7f8f036)
+
+---
+
+[Back to Characters](characters.md)
