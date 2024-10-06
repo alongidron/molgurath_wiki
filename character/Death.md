@@ -36,6 +36,6 @@ Even though most of the souls found a resting place, a small number of them ende
 The god of the abyss was unexpectedly friendly until the god of chaos decided to change his personality. However, Death wasn't around to stop the god of chaos because he and Life were protecting the seal they had made to seal God forever.
 
 
-![Mythical Story Image](https://github.com/user-attachments/assets/3d821176-1c13-4eb9-81fb-871cf26c9dab)
+![Mythical Story Image](https://github.com/user-attachments/assets/c63c3466-128e-40d8-96dc-089d15a6ad29)
 
  [Back to Characters](characters.md)
