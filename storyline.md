@@ -10,16 +10,15 @@ Explore the key events and stories of the mythical world.
 
 ## Navigation
 
-- [Home](index)
-- [Characters](characters)
+- [Home](index.md)
+- [Characters](characters.md)
 
 ---
 
-## Storys
+## Stories
 
-#### <a href="./storys/the-festival-of-the-end/the-festival-of-the-end.html">The Festival of the End</a>
-
-#### <a href="./storys/father crow history/father_corw.md">Father Crow History</a>
+- [The Festival of the End](storys/the-festival-of-the-end/the-festival-of-the-end.md)
+- [Father Crow History](storys/father-crow-history/father_crow.md)
 
 ---
 
