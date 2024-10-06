@@ -1,3 +1,6 @@
+# Monstrum Wiki
+
+## Monstrum
 ---
 - Age: unknown
 - Creator: unknown
