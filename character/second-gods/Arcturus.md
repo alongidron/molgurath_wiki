@@ -184,4 +184,4 @@ And so, Arcturus found himself in a new chapter of his long life, not as a warri
 
  ![Mythical Story Image](https://github.com/user-attachments/assets/33bba095-23dc-462f-b08e-636b5344e000)
 
- [Back to Characters](second-gods.md)
+ [Back to Characters](../second-gods.md)
