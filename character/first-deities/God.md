@@ -15,9 +15,9 @@ Despite this potential to dodge, no one has successfully managed to do so yet. T
 
 #### -Source of Magic: faith 
 
-For as long as religion and cults exist, God will gain power from every creature that participates in them. Fortunately for God, he can draw magical power from all human worlds. However, religion and cults can be destroyed, which poses a unique vulnerability for God. Unlike the other four first deities, God is the only one whose magic source can potentially come to an end, making him the weakest among the original deities.
+For as long as religion and cults exist, God will gain power from every creature that participates in them. Fortunately for God, he can draw magical power from all human worlds. However, religion and cults can be destroyed, which poses a unique vulnerability for God. Unlike the other Supreme Deitie that leaves on Monstrum, God is the only one whose magic source can potentially come to an end, making him the weakest among the original deities.
 
-God, one of the first deities to exist on Monstrum, took on the monumental task of constructing Heaven, a realm that would embody purity, serenity, and divine light. With boundless creativity and unwavering determination, God began shaping the fabric of this celestial realm.
+God, Supreme Deitie that leaves on Monstrum, took on the monumental task of constructing Heaven, a realm that would embody purity, serenity, and divine light. With boundless creativity and unwavering determination, God began shaping the fabric of this celestial realm.
 
 #### -Mini story: 
 With time, Monstrum was filled with creatures made by Life, and they worshiped God because they wanted to enter Heaven. God saw and loved their worship so much that he created Hell to scare the creatures. As God continued to weave the intricate tapestry of Heaven, word of this divine realm spread like wildfire across Monstrum. Creatures from all corners of the land, drawn by the promise of eternal peace and salvation, flocked to worship at the feet of their creator.
