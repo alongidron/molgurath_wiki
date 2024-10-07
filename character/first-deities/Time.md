@@ -18,7 +18,7 @@ Unlike rivers, time never stops flowing, which is why Time is considered the str
 
 #### mini stroy
 
-Time, as one of the earliest deities to emerge on Monstrum, assumed a pivotal role in shaping the fabric of reality and maintaining the integrity of the timeline. Among his myriad responsibilities, Time undertook the monumental task of safeguarding the chronological order across the cosmos while also crafting and overseeing various realms and domains.
+Time, as one of the Supreme Deitie that leaves on Monstrum, assumed a pivotal role in shaping the fabric of reality and maintaining the integrity of the timeline. Among his myriad responsibilities, Time undertook the monumental task of safeguarding the chronological order across the cosmos while also crafting and overseeing various realms and domains.
 
 One of Time's paramount endeavors was the creation of neutral zones—sacred spaces where the influence of magic is nullified. These zones serve as sanctuaries, free from the disruptive forces of mystical energies, ensuring stability and equilibrium within the universe.
 
