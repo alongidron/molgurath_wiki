@@ -19,7 +19,7 @@ In a stroke of revelation, Death recognized that his own magical prowess was roo
 
 In the hierarchy of divine power, Death emerged as the second most formidable among the original pantheon. His mastery over the forces of magic, coupled with his sagacious intellect, solidified his standing as a paragon of wisdom and authority within the pantheon of Monstrum. Through his ceaseless vigilance and profound insights, Death continues to shape the destiny of souls and the fabric of existence itself, forever enshrined as a pillar of cosmic order and enlightenment.
 
-Mini story: Death, one of the first deities to exist on Monstrum, took on the monumental task of making the afterlife a resting place. It wasn't hell, but it was a place where souls could rest if they didn't make it to heaven. Death is also considered the smartest Supreme Deitie that leaves on Monstrum.
+Mini story: Death, one of the Supreme Deitie that leaves on Monstrum, took on the monumental task of making the afterlife a resting place. It wasn't hell, but it was a place where souls could rest if they didn't make it to heaven. Death is also considered the smartest Supreme Deitie that leaves on Monstrum.
 
 Death, among the earliest deities to emerge in the realm of Monstrum, shouldered the weighty responsibility of sculpting the afterlife into a sanctuary for departed souls—a realm distinct from the fiery torments of Hell, yet offering solace and respite for those who did not ascend to heavenly realms. This realm became a tranquil resting place, providing a haven for souls who had not met the criteria for entry into paradisiacal realms.
 
