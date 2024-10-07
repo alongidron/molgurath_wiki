@@ -15,7 +15,7 @@ Despite this potential to dodge, no one has successfully managed to do so yet. T
 
 #### -Source of Magic: faith 
 
-For as long as religion and cults exist, God will gain power from every creature that participates in them. Fortunately for God, he can draw magical power from all human worlds. However, religion and cults can be destroyed, which poses a unique vulnerability for God. Unlike the other Supreme Deitie that leaves on Monstrum, God is the only one whose magic source can potentially come to an end, making him the weakest among the original deities.
+For as long as religion and cults exist, God will gain power from every creature that participates in them. Fortunately for God, he can draw magical power from all human worlds. However, religion and cults can be destroyed, which poses a unique vulnerability for God. Unlike the other Supreme Deitie that leaves on Monstrum, God is the only one whose magic source can potentially come to an end, making him the weakest among the Supreme Deitie that leaves on Monstrum.
 
 God, Supreme Deitie that leaves on Monstrum, took on the monumental task of constructing Heaven, a realm that would embody purity, serenity, and divine light. With boundless creativity and unwavering determination, God began shaping the fabric of this celestial realm.
 
