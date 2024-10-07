@@ -11,7 +11,7 @@ some of The Supreme Deities have the most important roles, so Monstrum made sure
 ###  [The dragon of the end](first-deities/The_dragon_of_the_end.md)
 ###  [Tarasks](first-deities/Tarasks.md)
 ###  [Death](first-deities/death.md) 
-###  [Life](Life.md)
+###  [Life](first-deities/Life.md)
 ###  [Time](first-deities/Time.md) 
 ###  [God](first-deities/God.md)
 
