@@ -17,7 +17,7 @@ Despite the absence of explicit demonstrations of a special god power, the signi
 
 Life gains his magic power from every single living creature. However, even though every god made their own creatures, as time passed, there were more dead creatures than living, which is why Life became the third strongest of the four original deities.
 
-Life, one of the first deities to exist on Monstrum, took on the monumental task of giving life to the barren world. With a gentle touch and a whisper of ancient incantations, Life breathed vitality into the desolate land. From the fertile soil sprouted verdant forests teeming with exotic flora, their vibrant colors painting the landscape like an artist's palette.
+Life, one of the Supreme Deitie that leaves on Monstrum, took on the monumental task of giving life to the barren world. With a gentle touch and a whisper of ancient incantations, Life breathed vitality into the desolate land. From the fertile soil sprouted verdant forests teeming with exotic flora, their vibrant colors painting the landscape like an artist's palette.
 #### -mini story
 As Life's power coursed through Monstrum, it stirred something deep within the earth. From the depths of the planet's core emerged the first creatures, their forms grotesque yet captivating. Some had scales shimmering like precious gems, while others bore wings that glimmered with iridescent hues under the newly formed sun. Life watched with satisfaction as these beings roamed the land, each one a testament to its divine craftsmanship.
 
