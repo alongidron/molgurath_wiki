@@ -1,4 +1,5 @@
-permalink: /characters/second-gods
+---
+permalink: second-gods
 ---
 # The Second Gods 
 
