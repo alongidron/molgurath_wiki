@@ -1,4 +1,4 @@
-# Arcturus - Monstrum Wiki
+# Arcturus - molgurath Wiki
 
 ## Arcturus
 
