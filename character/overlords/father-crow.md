@@ -38,4 +38,3 @@ Father Crow walks the border between life and death, his halberd dripping with a
 Wherever his crows fly, **silence follows**, and every step he takes leaves a **shadow that whispers of the abyss.**  
 
 ---
-
