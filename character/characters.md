@@ -7,7 +7,7 @@ permalink: /characters
 ---
 
 **Characters**  
-Meet the characters of Monstrum.
+Meet the characters of molgurath.
 
 ---
 
@@ -18,7 +18,7 @@ Meet the characters of Monstrum.
 ---
 
 ## Characters
-##  [Monstrum](../character/Monstrum.md)
+##  [molgurath](../character/molgurath.md)
 ##  [Supreme Deities](../character/first-deities.md)
 ##  [The Second Gods](../character/second-gods.md)
 ---
