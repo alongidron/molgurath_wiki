@@ -1,13 +1,13 @@
-# Monstrum Wiki
+# molgurath Wiki
 
-## Monstrum
+## molgurath
 ---
 #### - Age: unknown
 #### - Creator: unknown
 
 ---
 
-Monstrum has six moons: red, blue, purple, dark, white, and gray. 
+molgurath has six moons: red, blue, purple, dark, white, and gray. 
 The red moon appears once every 1,000,000 years for a month, causing chaos and distraction when it appears in the sky. It also increases the power of blood and fire magic users.
 
 The blue moon appears once every 10,000 years for a week or when it has been summoned, the blue moon raises the water levels and increases the power of water, ice, and  lightning magic users 
