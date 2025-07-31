@@ -1,14 +1,14 @@
 ---
 layout: default
-title: Monstrum Guide
+title: molgurath Guide
 ---
 
-# Monstrum Guide
+# molgurath Guide
 ## Explore the Guide
 ## [Characters](character/characters.md) &nbsp;&nbsp;&nbsp; [Storyline](storyline.md)
 
 
-## Welcome to Monstrum Guide Wiki
+## Welcome to molgurath Guide Wiki
 
  Use the navigation links above to explore the different aspects of the story.
 
