@@ -38,5 +38,5 @@ The **Overlords’ Agreement** reshaped Grymmwald into a realm of calculated ten
 
 ## Known Overlords
 
-- ###  [Father crow](overlords/father_crow/)
+- ###  [Father crow](overlords/father-crow.md)
 
