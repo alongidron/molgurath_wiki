@@ -1,4 +1,4 @@
-# Monstrum Wiki
+# molgurath Wiki
 
 ## Death
 
@@ -15,15 +15,15 @@ Death for all is a potent magical ability wielded by Death, which grants him the
 
 Source of Magic: Death's influence and significance extend far beyond the realms of the afterlife. Renowned for his unparalleled intellect and astute discernment, Death delved into the fundamental nature of magic itself, unraveling the intricate tapestry of mystical energies that permeate the cosmos. Through his meticulous observations and profound insights, Death uncovered a profound truth: the wellspring of magical power varies among creatures, with the magnitude of this source directly correlating to the potency of their magic.
 
-In a stroke of revelation, Death recognized that his own magical prowess was rooted in the countless souls that had traversed the threshold of mortality. Each departed soul contributed to the reservoir of magical energy from which Death drew his power. This insight propelled Death to the forefront of magical understanding, cementing his status as the preeminent arbiter of arcane knowledge among the Supreme Deitie that leaves on Monstrum.
+In a stroke of revelation, Death recognized that his own magical prowess was rooted in the countless souls that had traversed the threshold of mortality. Each departed soul contributed to the reservoir of magical energy from which Death drew his power. This insight propelled Death to the forefront of magical understanding, cementing his status as the preeminent arbiter of arcane knowledge among the Supreme Deitie that leaves on molgurath.
 
-In the hierarchy of divine power, Death emerged as the second most formidable among the original pantheon. His mastery over the forces of magic, coupled with his sagacious intellect, solidified his standing as a paragon of wisdom and authority within the pantheon of Monstrum. Through his ceaseless vigilance and profound insights, Death continues to shape the destiny of souls and the fabric of existence itself, forever enshrined as a pillar of cosmic order and enlightenment.
+In the hierarchy of divine power, Death emerged as the second most formidable among the original pantheon. His mastery over the forces of magic, coupled with his sagacious intellect, solidified his standing as a paragon of wisdom and authority within the pantheon of molgurath. Through his ceaseless vigilance and profound insights, Death continues to shape the destiny of souls and the fabric of existence itself, forever enshrined as a pillar of cosmic order and enlightenment.
 
-Mini story: Death, one of the Supreme Deitie that leaves on Monstrum, took on the monumental task of making the afterlife a resting place. It wasn't hell, but it was a place where souls could rest if they didn't make it to heaven. Death is also considered the smartest Supreme Deitie that leaves on Monstrum.
+Mini story: Death, one of the Supreme Deitie that leaves on molgurath, took on the monumental task of making the afterlife a resting place. It wasn't hell, but it was a place where souls could rest if they didn't make it to heaven. Death is also considered the smartest Supreme Deitie that leaves on molgurath.
 
-Death, among the earliest deities to emerge in the realm of Monstrum, shouldered the weighty responsibility of sculpting the afterlife into a sanctuary for departed souls—a realm distinct from the fiery torments of Hell, yet offering solace and respite for those who did not ascend to heavenly realms. This realm became a tranquil resting place, providing a haven for souls who had not met the criteria for entry into paradisiacal realms.
+Death, among the earliest deities to emerge in the realm of molgurath, shouldered the weighty responsibility of sculpting the afterlife into a sanctuary for departed souls—a realm distinct from the fiery torments of Hell, yet offering solace and respite for those who did not ascend to heavenly realms. This realm became a tranquil resting place, providing a haven for souls who had not met the criteria for entry into paradisiacal realms.
 
-Death also invented death magic. As powerful as it sounds, it is not the most powerful type of magic in Monstrum. Death magic comes in two forms: The first form is a dark glowing green color with skulls, symbolizing the energy of death. The second form is white-gray skulls, symbolizing the energy of a soul.
+Death also invented death magic. As powerful as it sounds, it is not the most powerful type of magic in molgurath. Death magic comes in two forms: The first form is a dark glowing green color with skulls, symbolizing the energy of death. The second form is white-gray skulls, symbolizing the energy of a soul.
 
 Death liked Life because he knew that without Life he wouldn't be as powerful as he is. Without Life, Death would not have as many souls to guide. So, Death agreed to help Life get rid of God, not only because they were good friends but also because God increased the number of dead creatures, which made him miss a few souls. To solve the problem, Death reached out to Time to help him make more death realms, and after some power show-off, Time agreed to help. Together, they made a lot of small death realms to keep things in order. However, they were not fast enough, as the lost souls, trapped in a state of limbo, coalesced to form the realm of the abyss.
 
