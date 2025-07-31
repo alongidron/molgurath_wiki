@@ -1,4 +1,4 @@
-# Monstrum Wiki
+# molgurath Wiki
 
 ## Time
 ---
@@ -14,11 +14,11 @@ However, there's a limitation or drawback to this magic. While Time can summon t
 Source of Magic: flow of time
 Time draws its magical power from the ceaseless flow of temporal currents. In this framework, the very essence of magic is intertwined with the passage of time itself. Just as a river carries water downstream, time carries with it the raw energy of magic, fueling the mystical abilities of those who can tap into its currents.
 
-Unlike rivers, time never stops flowing, which is why Time is considered the strongest of the Supreme Deitie that leaves on Monstrum.
+Unlike rivers, time never stops flowing, which is why Time is considered the strongest of the Supreme Deitie that leaves on molgurath.
 
 #### mini stroy
 
-Time, as one of the Supreme Deitie that leaves on Monstrum, assumed a pivotal role in shaping the fabric of reality and maintaining the integrity of the timeline. Among his myriad responsibilities, Time undertook the monumental task of safeguarding the chronological order across the cosmos while also crafting and overseeing various realms and domains.
+Time, as one of the Supreme Deitie that leaves on molgurath, assumed a pivotal role in shaping the fabric of reality and maintaining the integrity of the timeline. Among his myriad responsibilities, Time undertook the monumental task of safeguarding the chronological order across the cosmos while also crafting and overseeing various realms and domains.
 
 One of Time's paramount endeavors was the creation of neutral zones—sacred spaces where the influence of magic is nullified. These zones serve as sanctuaries, free from the disruptive forces of mystical energies, ensuring stability and equilibrium within the universe.
 
@@ -26,7 +26,7 @@ Moreover, Time played a crucial role in the genesis of several divine entities, 
 
 In addition to his role in the creation of celestial beings, Time collaborated with other divine entities to forge realms of profound significance. He aided the Devil in crafting the intricate and infernal Rings of Hell, labyrinthine domains that serve as infernal bastions of punishment and torment. Furthermore, Time lent his expertise to Death, assisting in the creation of the Death Realms—mystical realms where departed souls find their final rest, overseen by the somber deity.
 
-Through his unwavering vigilance and boundless creativity, Time stands as a cornerstone of cosmic order, tirelessly upholding the balance of existence while contributing to the rich tapestry of divine creation on Monstrum. His influence reverberates throughout the cosmos, shaping the destiny of worlds and souls alike.
+Through his unwavering vigilance and boundless creativity, Time stands as a cornerstone of cosmic order, tirelessly upholding the balance of existence while contributing to the rich tapestry of divine creation on molgurath. His influence reverberates throughout the cosmos, shaping the destiny of worlds and souls alike.
 
 Time has elevated the practice of time magic to unprecedented heights, showcasing abilities that transcend the conventional applications seen in most practitioners. Unlike many wielders of time magic who primarily focus on freezing time or traversing through different temporal periods, Time possesses a unique mastery that enables him to manipulate the age of various entities and phenomena.
 
@@ -44,9 +44,9 @@ At first, Time kept a close watch on them, wary of any attempts to interfere wit
 
 In the vast expanse of the Time realm, Time found solace in the company of these creatures. With their newfound freedom, they flourished under his guidance, delving deeper into the mysteries of time magic and unlocking its true potential. As the creatures honed their skills, Time found himself drawn to their creativity and resilience. Inspired by their determination, Time began to experiment with his own form of creation, crafting beings of his own to inhabit the Time realm.
 
-With Time's decision to permit the creatures to utilize time magic outside the Time realm, albeit with the restriction against time travel, a newfound sense of cooperation emerged between Time and the inhabitants of Monstrum. The creatures, eager to harness the power of time magic responsibly, formed guilds and societies dedicated to its study and practice. Under Time's watchful eye, they developed strict codes of conduct and regulations to ensure that the delicate balance of the temporal fabric remained intact.
+With Time's decision to permit the creatures to utilize time magic outside the Time realm, albeit with the restriction against time travel, a newfound sense of cooperation emerged between Time and the inhabitants of molgurath. The creatures, eager to harness the power of time magic responsibly, formed guilds and societies dedicated to its study and practice. Under Time's watchful eye, they developed strict codes of conduct and regulations to ensure that the delicate balance of the temporal fabric remained intact.
 
-As the creatures delved deeper into the intricacies of time magic, they discovered its myriad applications beyond mere manipulation of the past or future. They learned to manipulate the flow of time within localized areas, slowing it to a crawl or hastening it to a blur. With this newfound mastery, they reshaped their surroundings, creating marvels of engineering and architecture that defied conventional understanding. Time, impressed by their progress and newfound responsibility, began to foster a closer relationship with the creatures of Monstrum. He shared his knowledge and wisdom, guiding them in their exploration of time's mysteries and imparting upon them the importance of respecting its natural order.
+As the creatures delved deeper into the intricacies of time magic, they discovered its myriad applications beyond mere manipulation of the past or future. They learned to manipulate the flow of time within localized areas, slowing it to a crawl or hastening it to a blur. With this newfound mastery, they reshaped their surroundings, creating marvels of engineering and architecture that defied conventional understanding. Time, impressed by their progress and newfound responsibility, began to foster a closer relationship with the creatures of molgurath. He shared his knowledge and wisdom, guiding them in their exploration of time's mysteries and imparting upon them the importance of respecting its natural order.
 
 However, nothing stays good forever. After centuries, the creatures learned to make what they called "time bombs," devices that restored everything within their range to a previous undamaged state. At first, Time thought they were harmless, but he soon realized that these bombs were damaging the timeline itself. In response, Time decided once again to ban the use of time magic outside the Time realm. He declared that any creature caught using time magic would be punished by death, and this time, Life wasn't around to change his mind.
 
