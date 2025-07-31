@@ -2,7 +2,7 @@
 permalink: /characters
 ---
 
-# Characters - Monstrum Wiki
+# Characters - molgurath Wiki
 
 ---
 
