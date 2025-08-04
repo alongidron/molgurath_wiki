@@ -14,52 +14,16 @@ Instead of becoming a puppet, Father Crow **trapped the god inside his mind**, c
 
 ---
 
+#<div style="margin-top: 100px;"></div>
 
-
-
-## **Warning**
-
-
-
-
-
-
-**Avoid at all cost.**  
-
-
-
-
-
-
-
-
-You may **move on now**.
-
-
-
-
-
-
-Even if you learn about him, you **will still die to him**.  
-
+<div style="color: red; font-weight: bold;">
+⚠️ Avoid at all cost  
+⚠️ Highly dangerous  
+⚠️ You will die  
+⚠️ You can move on now  
+⚠️ Even if you learn about him you will still die to him  
+</div>
 ---
-
-
-
-
-
-
-
-## **A Final Warning**
-
-
-
-
-
-
-
-
-
 
 *Still here?*  
 Then you’re either **too foolish**… or **already too far gone.**  
