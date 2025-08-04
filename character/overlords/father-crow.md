@@ -20,7 +20,7 @@ Instead of becoming a puppet, Father Crow **trapped the god inside his mind**, c
   <p style="margin-bottom: 1400px; font-size: 50px;"> Avoid at all cost</p>
   <p style="margin-bottom: 1400px; font-size: 50px;"> Highly dangerous</p>
   <p style="margin-bottom: 1400px; font-size: 50px;"> You will die</p>
-   <<p align="center">
+   <p align="center">
   <a href="https://alongidron.github.io/molgurath_wiki/character/overlords.html">
     ← Return to Overlords
   </a>
