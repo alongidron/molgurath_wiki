@@ -13,6 +13,7 @@ However, the god **underestimated his willpower**.
 Instead of becoming a puppet, Father Crow **trapped the god inside his mind**, claiming its abyssal power as his own.  
 
 ---
+![image](https://github.com/user-attachments/assets/edf1025d-1ba9-4919-be47-9be16afddec8)
 
 <div style="color: red; font-weight: bold; text-align: center;">
 
