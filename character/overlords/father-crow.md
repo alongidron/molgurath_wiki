@@ -21,7 +21,7 @@ Instead of becoming a puppet, Father Crow **trapped the god inside his mind**, c
   <p style="margin-bottom: 1400px; font-size: 50px;"> Highly dangerous</p>
   <p style="margin-bottom: 1400px; font-size: 50px;"> You will die</p>
    <p align="center">
-  <a font-size: 50px; href="https://github.com/alongidron/molgurath_wiki/blob/main/character/overlords.md">← Return to Overlords</a>
+  <a href="https://github.com/alongidron/molgurath_wiki/blob/main/character/overlords.md">← Return to Overlords</a>
 </p>
   <p style="margin-bottom: 1400px; font-size: 50px;"> You can move on now</p>
   <p style="margin-bottom: 1400px; font-size: 50px;"> Even if you learn about him you will still die to him</p>
