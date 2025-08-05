@@ -202,8 +202,131 @@ He tilted his head slightly, tone unreadable.
 “I only want the king dead. What comes next? That’s up to you.
  And whatever it is... I know it won’t be boring.”
 He turned, the snow crunching under his boots as he looked out at the cold white mountains.
-“If you’re in, we leave in tomorrow  days. That should give you enough time to rest, recover, and decide what kind of monster you want to be when the kingdom falls.”
+“If you’re in, we leave in tomorrow. That should give you enough time to rest, recover, and decide what kind of monster you want to be when the kingdom falls.”
 Father Crow’s grip on the halberd tightened slightly. His voice was calm, but edged like a blade left too long in frost.
+With a blur of motion and a shimmer of magic, the king vanished into one of the hidden escape routes carved into the throne’s foundations, leaving only a silence behind… and his crown, rolling across the blood-slick floor.
+Father Crow stood alone, chest rising with slow, heavy breaths.
+He walked forward and picked up the crown.
+Not in triumph.
+ Not in ceremony.
+ But like lifting a weapon.
+He turned to leave.
+But a voice stopped him.
+The maimed guard, half-sitting against a crumbled pillar, blood still leaking from his stump, sneered through clenched teeth.“Fine. I’ll help you. But on one condition…”
+He looked Osricain straight in the eyes.
+“Tell me why you want to kill him.”
+Osricain blinked, then chuckled.
+“Oh? So the abyss inside you doesn’t get the last word after all. Interesting. Looks like you’re the one still holding the reins.”
+He folded his arms, the cold wind pulling at his feathered cloak.
+“Alright. I’ll keep it simple.”
+His tone dropped, sharp now. Honest.
+“First—he killed a good friend of mine. One of the few I actually respected. Not for power. Not for rank. Just... a good crow. Gone for daring to question a command.”
+A pause.
+“Second—he destroyed what the Crow Kingdom used to be. We were a people of shadow and brilliance. Now? We're pawns. Broken feathers and blind obedience.”
+Father Crow tilted his head, watching Osricain with cautious interest.
+“Oh, I see…”
+His voice was calm, but laced with skepticism.
+“Then what is your plan exactly?”
+Osricain smiled—but this time, it was more calculated than amused.
+“Just rest for now. You’ve earned it.”
+He turned slightly, already walking away.
+“Tomorrow, before we move out… I’ll share the plan with you.”
+Osricain looked back one last time, his cloak fluttering like a shadow in the snow.
+“I promise I won’t kill you in your sleep. I’m not a coward.”
+There was no smirk this time. Just flat, honest words.
+Father Crow stared at him for a long moment. Then, without replying, he sat down in the snow, halberd resting beside him.
+And for the first time in what felt like ages, he slept—not as a warrior, not as a weapon, but as something caught between man and monster.
+When the morning came, the air was different.
+Colder.
+And around him, the snow had been shredded, as if something massive had passed through during the night. Broken stones, scorch marks, and jagged gouges in the earth told the story of a silent battle—one that didn’t wake him.
+Father Crow rose slowly, scanning the destruction.
+Then he heard Osricain’s voice, casual as ever.
+“Don’t worry about it.”
+He stood at the edge of the camp, arms crossed, watching the horizon.
+“Just had a little conversation with your… other half. He’s very friendly, once you get past the soul-eating stare.”
+Father Crow turned sharply.
+“You spoke to the Abyss God?”
+Osricain shrugged.
+“Spoke? I guess you could say that… more or less.”
+Osricain rolled his shoulders. “He’s a scary one.”
+He turned to the horizon, as the snow began to lighten with the morning glow.
+“Well then… now that you’re awake—”
+He paused and glanced back, voice calm but pointed.
+“Do you feel ready to fight?”
+Father Crow stood tall, halberd in hand, cloak heavy with frost but his presence unmistakably intact. The wounds from the Gargantura still ached, but the fire in his chest—the abyssal pulse—beat stronger than ever.
+“Ready?”
+A shadow flickered in his eyes.
+“I was born in a battlefield… I never stopped.”
+Osricain smirked, satisfied.
+“Good. Well then…”
+He snapped his fingers.
+In a blink, the world twisted. Wind howled, light shattered—and then they were inside the throne room of the Crow King.
+A blast of abyssal energy and teleportation magic dropped the entire group into the heart of enemy power, catching the guards completely off guard.
+Shouts echoed. Blades were drawn. The king rose from his obsidian throne, startled—but not yet afraid.
+Osricain’s voice cut through the chaos.
+“*You take the king—*we’ll deal with the rest!”
+Before Father Crow could even react, one of the royal guards, a towering brute wielding a giant warhammer, charged—eyes locked on him like a predator spotting prey.
+The hammer came crashing down with impossible force.
+But Father Crow moved faster.
+With a smooth, precise slash, he severed the guard’s hand, the weapon clanging against the stone floor. Blood sprayed across the tiles.
+Father Crow raised his halberd for the finishing blow—
+ But suddenly, the guard was blasted away by a fierce gust of wind, slammed into a pillar with a sickening crunch.
+Father Crow turned sharply—confused.
+“What—”
+“I said I’ll handle the others!” Osricain shouted, hands glowing with wind magic. “Just kill the damn king!”
+There was no time to argue, no time to question.
+The room was already a warzone. Crow guards pouring in from the halls. Osricain, Lu, and Ozarix already clashing with elite defenders in a storm of steel and feathers.
+Father Crow turned back.
+The Crow King now stood tall, black crown gleaming, feathers lined with silver, his presence imposing. His greatsword gleamed with ancient power as he blocked the halberd with a heavy, practiced strike.
+“So,” the king growled, voice like cold iron, “the little mage returns… with a name and a weapon that doesn’t belong to him.”
+Their blades clashed, metal singing as sparks flew.
+ The ground cracked beneath them.
+And the battle began.
+The clash of blades rang loud through the throne room—but it didn’t last long.
+The Crow King underestimated him.
+He expected the boy he once cast out. He wasn’t ready for the abyss-forged fury Father Crow had become.
+Every strike from the halberd was faster, heavier, more precise than the king could handle. The king blocked one blow too slow, staggered back, and the next hit shattered his guard.
+Panic flickered in the king’s eyes.
+And then—he fled.
+
+“So what if you have the crown? You’ll never be king. Not you.”
+Father Crow paused.
+Then turned slowly.
+His steps were quiet. Final.
+He walked over, grabbed the guard by the throat, and lifted him into the air with ease.
+The halberd still in one hand. The crown in the other.
+His voice was calm—too calm.
+“Oh really?”
+He started walking again, dragging the guard along like a sack of feathers.
+“Then follow me.”
+
+Father Crow walked through the palace halls, the severed-armed guard still dangling from his grip, until he reached the royal balcony overlooking the central courtyard.
+Below, a massive crowd of crows had gathered—soldiers, citizens, nobles. Word of the king’s defeat had spread like fire in dry feathers. They had come for answers, for leadership… or perhaps, just for spectacle.
+When Father Crow stepped out onto the balcony, silence fell like a blade.
+No sound.
+ No breath.
+ Only the wind whispering through feathers.
+Then, slowly, he raised the crown.
+At first—cheers erupted, deafening and wild. Applause, screams of victory, and chants of his name.
+ “Father Crow! Father Crow!”
+But then—
+The abyssal magic, hidden within the crown, activated.
+A pulse—dark, silent, and unseen by the eye—spread like a wave across the courtyard, binding every crow below to the abyss. Not killing them… not yet. But marking them. Changing them. Controlling them.
+The cheers turned to screams. Some collapsed. Some clutched their heads. A few fled in panic.
+But most… stood still, stunned by the foreign power now woven into their very being.
+Father Crow turned to the mutilated guard beside him and dropped him to the floor with a heavy thud. He handed him a black sack, tied with crimson cord.
+“Seeing how you reacted to me… I’d wager you’re some kind of leader. Maybe even a general.”
+He leaned in slightly.
+“I want you and your people to make sure every single crow—every one of them—wears this mask. Including you.”
+The guard looked inside the bag. Inside were dozens of black, abyss-marked crow masks—each cursed, each permanent.
+“And if I don’t?” the guard spat, defiant even in pain.
+Father Crow smiled, just a little.
+“Then I take your other arm. And this time…”
+ “You’ll feel five times the pain.”
+The guard trembled, then lowered his head, resigned.
+“…And where are you going, if I may ask… my lord?”
+Father Crow turned toward the horizon. His voice was calm, distant.
+“Oh… just a little family execution.”
 
 
 ---
