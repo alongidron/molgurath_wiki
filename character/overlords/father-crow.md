@@ -622,9 +622,280 @@ And for the first time, he saluted.
 Not to a king. Not to a tyrant.
 To Father Crow.
 The blade embedded itself in the stone just inches from Father Crow’s head, the force of it cracking the floor where it landed.
+Even he hadn’t seen it coming.
+Not because he couldn’t react—but because the one who threw it hadn’t meant to kill him.
+Father Crow’s eyes narrowed. He turned toward the throne.
+There, reclining with an air of furious judgment, sat Osricain, arms crossed, his expression burning with disappointment and rage.
+“What the hell do you think you’re doing?”
+His voice echoed like thunder in the vast throne room.
+“First, you kill the top elite warriors—which, fine, they were your family and honestly, they sucked, so I’ll let that slide.”
+He stood, pacing toward Gabriel with barely restrained fury.
+“But then you assign the weakest crows to defend the kingdom? And hand leadership to a half-crippled general?”
+He gestured wildly, voice rising.
+“How do you think you’re going to deal with the other Overlords when they attack? You think they’ll play fair? You think they’ll give you time to build character through your army's suffering?”
+“We had a deal—you were going to lead this kingdom. Not ruin it with poetic vengeance and half-baked theatrics.”
+Father Crow’s cloak shifted, the air around him deathly still.
+He didn’t speak at first.
+Then, calmly—dangerously—he stepped forward, his voice low and even: Then he spoke, voice cold and precise:
 
+“First of all… you told me I could do what I want. And now, suddenly, you’ve changed your mind?”
 
+He continued walking—each step deliberate, boots echoing off stone.
 
+“Second… how do you know all of that?
+It just happened.
+And I didn’t see you in any of those events.”
+
+He stopped halfway between them.
+
+“Thirdly… once the weak die, the strong become easier to control.
+Fear breeds obedience.
+Loss breeds loyalty.
+I’m not breaking the kingdom, Osricain. I’m purging the noise.
+You want elite? I’ll give you real elite—born from blood, not titles.”
+He took one last step, now face to face with him.
+
+“And fourth… I’ve made allies during the last thirty years.
+Ones you don’t even know exist.
+They’ll give us the protection we need—until this kingdom is remade.”
+
+He let that sink in.
+And then, with a cold smile:
+
+“And lastly…”
+
+He leaned forward slightly, voicelike frost on steel.
+
+“What are Overlords… exactly?”
+
+Osricain sighed, dragging a hand down his face before slamming his fist against his forehead in frustration.
+
+“First—
+You goddamn idiot—we’re Crows.
+We can summon Ishkrow—the crow creatures.
+Usually we use them to communicate across great distances…
+But me? I use them to spy.”
+
+He pointed a sharp finger.
+
+“So yes, I was watching.
+Second… fair point. I did say you could do whatever you wanted. That’s on me.
+But lastly—let me make something clear…”
+
+He crossed his arms again, his voice low, sharp, and grim.
+
+“Overlords are stupidly strong.
+Some of them are even more powerful than you.
+Sure—they’re not as fast or as physically overwhelming as the Gargantura…
+But their magical abilities?”
+He shook his head.
+“Terrifying.”
+
+He stepped forward again.
+
+“They’re like Warlords—territory-obsessed maniacs—but unlike Warlords, they’re disciplined.
+Warlords attack for chaos.
+Overlords attack with purpose.”
+
+A pause.
+
+Osricain’s expression softened just slightly.
+
+“At least you had the sense to keep Velterra alive.
+That gives us a chance.”
+
+Father Crow raised an eyebrow, slightly amused.
+
+“You said he was useless with one arm.”
+
+Osricain scoffed.
+
+“I was being dramatic.
+Caught up in the moment.”
+
+He rolled his eyes, folding his arms tighter.
+
+“Velterra is more capable than you give him credit for.
+You got lucky taking his arm before he realized how dangerous you were.
+If he’d gone all out from the start…
+You might not be standing here.”
+
+Another step. Now face to face.
+
+“So tell me…
+Where are those allies you spoke of?
+Because they better arrive before the Overlords realize the King is dead.
+Once they know the throne is unguarded, they’ll descend like vultures.”
+
+Father Crow said nothing.
+
+Not for a long moment.
+Then, slowly, Father Crow raised his hand…
+
+SNAP.
+
+A sharp echo filled the throne room.
+
+Immediately, the torches lining the walls flickered violently, and a sudden rush of cold air swept through the chamber. The shadows twisted, stretching unnaturally—warping like ink in water.
+
+From those shadows…
+they appeared.
+
+One by one.
+
+Stepping through cracks in space like phantoms escaping the abyss, they emerged—figures cloaked in darkness, each one wrapped in a black-feathered aura.
+Some walked on limbs that bent the wrong way. Others glided. Some oozed through rifts in the air, their forms barely stable.
+All of them wore crow masks, some ancient and cracked, others smooth and new.
+
+They stood silently behind Father Crow like a funeral procession of nightmares.
+
+Osricain’s eyes narrowed.
+
+He recognized a few—and that alone sent a shiver down his spine.
+
+“You brought back them?” he muttered.
+
+These were not just warriors.
+They were abominations of history.
+Banished generals.
+Forbidden spells turned flesh.
+Creatures from dead dimensions.
+
+Osricain let out a tired sigh, one hand on his hip.
+
+“This… is what I have to work with?”
+
+Father Crow tilted his head.
+
+“Are you underestimating them?”
+“I thought you learned something from the former king and Velterra…
+—not to judge a creature by its appearance.”
+
+Osricain didn’t flinch.
+
+“I judged them by their aura, not their looks.
+But… again, you're right.”
+He looked over the terrifying group, and let out a long breath.
+“Perhaps I should just… wait and see.”
+
+Father Crow smirked
+"oh you will"
+
+And then, a week later—he felt it.
+
+A presence.
+
+Above.
+
+He looked up from the training yard, eyes narrowing against the harsh sunlight.
+
+A witch.
+
+Cloaked in deep purple, she drifted in slow, deliberate circles above the palace—perched atop a floating staff that pulsed with silent, eerie grace. Her robes rippled like flame in a storm, trailing smoke and embers that vanished before they touched the ground. Her presence was impossible to ignore.
+
+Archers scrambled into formation, loosing volleys of arrows.
+
+They missed.
+
+She moved like wind through water—effortless, fluid, untouchable.
+
+Father Crow’s hand snapped out. One of his guards flinched as his spear was ripped from his grip by unseen force.
+
+With deadly precision, Father Crow hurled the spear skyward.
+
+A streak of steel cut through the sky.
+
+Direct hit.
+
+The witch jerked violently, spinning out of control, and crashed in a spiraling descent—slamming into the earth with a burst of snow, stone, and splintered wood.
+
+Silence.
+
+Then—
+
+A wave of raw, wild energy exploded from the crater, shaking the palace walls and knocking men off their feet.
+
+From the broken earth, she rose.
+
+One hand pressed into the ground. Her hair whipped wildly around her glowing eyes, alive with violet magic. The dust parted around her like mist fleeing fire.
+
+She wasn’t running.
+
+She wasn’t wounded.
+
+She was ready.
+
+A wicked grin spread across her face as she slid into a low, sharp stance—her robes igniting in violet flame that danced with unstable magic.
+
+“So… you’re the one they call Father Crow,” she said, her voice sharp, playful, and far too confident. “I’m Vel—”
+
+She never finished.
+
+Father Crow lunged.
+
+In a flash of black-green light, his halberd sliced through the air in a deadly arc aimed to silence her name before it could be spoken.
+
+But she twisted—unnaturally, impossibly—spinning mid-air, the blade missing her face by inches.
+
+She landed with a light step, boots tapping against the cracked earth.
+
+“Damn. You’re not friendly at all, are you?” she grinned, sparks dancing in her hair.
+“This is going to be fun.”
+
+The battle erupted.
+Father Crow moved like a shadow—his halberd sweeping, spinning, pulsing with abyssal energy. Velmora countered with blazing arcs of raw magic, teleportation bursts, and dancing flames that twisted like living serpents.
+Even with a few of his masked allies leaping in to assist, he struggled.
+Her spells didn’t just burn—they undid magic, unraveling the abyss around her with a strange, ancient energy. Every time he thought he had an opening, she warped out of reach, taunting him with a wicked smirk.
+Then, she feinted a strike, vanished, and reappeared behind him, a glowing dagger of condensed magic at his throat.
+“Gotcha—”
+“Velmora, what the hell are you doing here?!” came Osricain’s voice, slicing through the chaos.
+She paused, the blade flickering out of her hand.
+“Oh—oops,” she said, turning casually. “I got caught up in the moment.”
+She floated back lazily, her staff appearing beside her.
+“Osricain! How have you been? It’s been, what… two thousand years?”
+Osricain narrowed his eyes.
+“Still reckless as ever.”
+“Oh, hush,” she winked. “I just came to say hi… and see how powerful the new ruler of the crows is.”
+She turned to Father Crow, eyes gleaming.
+“Gotta say—I’m very impressed. A little stiff, but you hit hard.”
+She brushed dust from her robes.
+“Don’t worry—I’ll let the other Overlords know this kingdom is already claimed.”
+She turned, as if nothing had happened.
+“Well. I’ll be leaving now.”
+But Father Crow’s voice boomed, furious.
+“If you don’t kill me now… I’ll hunt you later.”
+Velmora smirked, unbothered.
+“We’ll see about that.”
+She gave a mock salute, her voice soft and dripping with mischief.
+“It was fun, Father Crow. Can’t wait to meet you again.”
+And with a snap of her fingers, she vanished in a swirl of glittering crimson light.
+Silence returned.
+Father Crow stood still, his halberd humming with rage, magic crackling along its edge.
+Osricain stepped beside him.
+“That… was an Overlord.”
+Osricain exhaled, still staring at the place where Velmora had vanished.
+“She’s the most powerful Overlord of them all.”
+He spoke slowly, like the weight of the truth was still settling into the room.
+“Out of all the witches, she’s the only one who can use every school of magic. Elemental, arcane, abyssal, soul, time—even forbidden magic no one else dares touch.”
+He looked to Father Crow.
+“Beating her wouldn’t be easy. Not for anyone.”
+Father Crow stood quietly for a moment, cloak brushing the broken stone beneath his feet.
+“So then,” he said, “out of all the Overlords… where would you rank me?”
+Osricain raised a brow, lips tightening with thought.
+“Tenth,” he said bluntly. “You’re probably one of the top ten strongest Overlords right now.”
+Crow’s eyes narrowed.
+“And how many are there?”
+“Last I knew,” Osricain said, “thirty-three. If none of them died in the last two thousand years, then that number should still be accurate.”
+Father Crow’s grip tightened on his halberd. His voice dropped low, a grin curling at the edge of his mouth.
+“Good.”
+“Because if they’re all half as strong as Velmora—or stronger—then this won’t be boring.”
+He turned toward the balcony again, looking out at his kingdom—his broken, reshaped kingdom—where the masks ruled, the abyss flowed, and loyalty was carved through strength and fear.
+“It’s time to expand. To grow stronger.”
+He raised a hand slowly, fingers twitching with purpose.
+“I will make this kingdom greater than it has ever been.”
+And for the first time in a long, long while—
+Father Crow smiled.
+Father Crow’s cruelty had already drawn the eyes of gods and overlords alike. His conquest, his abyss-forged kingdom, his masked legions—they whispered of tyranny and power.
 
 
 
