@@ -895,7 +895,462 @@ He raised a hand slowly, fingers twitching with purpose.
 “I will make this kingdom greater than it has ever been.”
 And for the first time in a long, long while—
 Father Crow smiled.
+Over the years, Father Crow rose through the ranks by killing several overlords, though the cost was high—he lost some of his best generals. To prevent future losses, he imposed a strict rule: no general may use more than 75% of their power unless he permits it. If a crow couldn’t win with that, they weren’t worthy of the title.
 Father Crow’s cruelty had already drawn the eyes of gods and overlords alike. His conquest, his abyss-forged kingdom, his masked legions—they whispered of tyranny and power.
+ChatGPT said:
+But one act… cut through the silence like a scream.
+
+Far beyond the mainland, on a lonely island hidden by ancient protections, Father Crow found a warrior—one strong enough to turn tides.
+
+When asked to join, the warrior refused.
+
+But instead of killing him, Father Crow chose a different punishment.
+
+He wiped out the island.
+
+Every bird. Every beast. Every soul.
+
+Except one.
+
+The warrior was left alive—alone, untouched, unreachable.
+
+To seal this prison of solitude, Father Crow placed Annabelle as warden. A ghost in the ruins. Always watching. Always ensuring the warrior stayed isolated… and alive.
+
+For fifty years, the warrior endured silence. No death. No escape. No voices but the sea.
+
+And then—he broke.
+
+He joined Father Crow.
+That single act of psychological warfare stunned the world.
+Even Overlords and gods who had ignored Father Crow’s rise now turned their attention to him. Assassins came, Strike teams followed, death wishes, All failed.
+Eventually, a diplomatic Overlord named Bell came to Father Crow with an offer.
+He came not with threats, but with words—seeking to convince Father Crow to join the Overlord Agreement, a fragile pact created to prevent all-out war between overlords and and to preserve what little peace remained. 
+Father Crow was almost convinced—until he saw Velmora among the delegation.
+He refused instantly.
+That’s when it happened.
+The earth cracked beneath their feet, cutting off all the Overlords.
+From the rupture stepped Charly, the champagne demon. dressed in charm and chaos.
+who insist that the deal must happen With a snap of his fingers, each Overlord received a paper—the deal adjusted just slightly to suit their egos, their paranoia, their desires.
+Father Crow was skeptical… until Charly summoned a bottle of wine into his hands.
+He took a sip.
+And despite crows being resistant to all poison, the drink made him feel…
+Funny. Powerful. Light.
+ Good.
+He smiled—just slightly—and signed.
+The Overlord Ring was formed.
+One quiet day, deep in one of Charly’s sacred bars—a great tree hollowed into a tavern—Father Crow sat, mildly drunk, annoyed by assassins who had already tried (and failed) to kill him during his off hours.
+That’s when a warrior named Willow entered.
+She didn’t want to conquer. Didn’t want to kill.
+She simply wanted to test his strength.
+At first, Father Crow ignored her.
+But then… she hit him.
+Hard.
+He didn’t stagger—but he sobered.
+His aura flared. The abyss roared. He rose, eyes sharp, and engaged her fully.
+The fight erupted.
+Blades clashed. Magic sparked. Furniture was destroyed.
+And then—he accidentally hit the tree itself.
+The bar began to sink into the ground, bark cracking, roots withdrawing.
+Both he and Willow were caught off guard as the world shook beneath them.
+The bartender, who had watched in silence, raised a hand and waved gently.
+“Father Crow… I’m very sorry. But Charly has banned you from all his bars.”
+“You destroyed this place. You know the rule—kill, but don’t destroy. It was a pleasure serving you.”
+The tree continued to vanish.
+Father Crow’s voice boomed with rage.
+“Let this tree fall, and I’ll kill you.”
+The bartender only smiled.
+“I might be a bartender, but I’m also Charly’s messenger.”
+“You sure you want to kill me?”
+Father Crow hesitated.
+But it was already too late.
+The tree vanished beneath the earth.
+And so did Willow.
+The ground trembled as Father Crow let his rage loose.
+Abyssal energy exploded from his body in all directions, pulverizing stone, collapsing trees, and shattering mountainside structures. Entire forests nearby wilted and died in seconds. Nothing within miles remained untouched.
+And still, it wasn’t enough to calm the storm inside him.
+He returned to his castle, his cloak trailing embers of shadow, and immediately summoned his assassins to find and kill willow. but with no luck.
+one day, as he stood atop his throne room balcony—
+Charly’s messenger appeared again.
+Same neutral face. Same casual cheer.
+“So… good news!”
+The figure clapped their hands together softly.
+“Turns out we made way too many crow-specific drinks. Charly’s decided he’ll sell them—only to you, of course—if you want to drink again.”
+Father Crow stared.
+“How much?”
+The messenger grinned.
+“Just 1,000 monster souls… or 500 human ones.”
+Father Crow raised an eyebrow beneath his mask.
+“Why fewer humans?”
+“i dont know,” the messenger shrugged. “To me, human and monster souls taste the same. But Charly says human souls are ‘more flexible.’”
+They made air quotes as if quoting a menu item.
+“Whatever that means.”
+Father Crow let out a long, tired sigh.
+“Fine. I’ll pay you the souls.”
+The messenger beamed like a merchant closing a deal.
+“Oh, goody! Because you’re still banned, you won’t get them in the bars.”
+They held out a small, intricately crafted black bell with abyssal markings and a crow feather tied to the handle.
+“Ring this when you’ve got the payment. I’ll come to you. Delivery only.”
+Then they bowed mockingly.
+“Bye-bye~!”
+They vanished in a puff of crimson smoke.
+Father Crow had a problem—he needed souls. More than his world could offer.
+
+Then he remembered: his magic could tear open portals to other universes.
+
+Without delay, he dispatched his generals into new worlds to harvest what he required. While they hunted, Father Crow took a rare moment for himself. A quiet stroll through a distant forest.
+While passing through a forest cloaked in mist and silence, he encountered Oboo—the god of knowledge.
+
+Something felt off. Dangerous.
+
+Sensing the threat, Father Crow didn’t wait.
+
+He struck first.
+
+His halberd cleaved the air, abyssal energy roaring behind it—but Oboo blocked the blow with unnatural ease, reading the attack as if it had already happened.
+
+Their battle ignited the land.
+
+Father Crow’s brute strength and abyssal fury clashed against Oboo’s twin daggers, but what made the god terrifying wasn’t just skill—it was foresight.
+
+Oboo could see into the future.
+
+Every strike Father Crow threw was met with precise counters. Every feint, anticipated. Every shift in rhythm, effortlessly adapted to.
+
+The fight dragged on—vicious, unrelenting.
+
+Abyssal winds screamed with every swing of Father Crow’s halberd, yet Oboo flowed like water around them, never faltering, always one step ahead.
+
+It didn’t make sense.
+
+No matter how chaotic, how unpredictable his moves were—Oboo moved like he had already fought this battle a thousand times.
+
+Then, in a blur of motion—a feint, a sweep—Father Crow caught it.
+
+Oboo dodged before he committed to the strike.
+
+That’s when it clicked.
+
+He wasn’t just fast.
+He was seeing the future.
+
+With that revelation, Father Crow shifted.
+
+If prophecy guided Oboo, then he would overwhelm it.
+
+He unleashed a new onslaught—not just fast or powerful, but devastating.
+
+Abyssal spells tore open the ground.
+
+Blades of void screamed through the air, cutting across dimensions.
+
+Shockwaves cracked the sky.
+
+These weren’t attacks meant to be dodged.
+
+They were meant to end the fight.
+
+ChatGPT said:
+But each attack cost him.
+
+Every movement drained more from his reserves. The abyss responded, but even it demanded a toll. With each passing moment, Father Crow pushed closer to his limits.
+
+He had no choice.
+
+This battle had to end—and soon.
+
+Because the longer it lasted, the more the god of knowledge adapted.
+
+Just when Father Crow thought he was gaining ground against Oboo’s foresight, the air shifted.
+
+A new presence entered the fray.
+
+The Dark Guardian stepped from the shadows—silent, towering, relentless.
+
+Now it was two against one.
+
+The battle doubled in intensity.
+Precision met power.
+Foresight met fury.
+
+Father Crow’s abyssal energy lashed in every direction, carving trenches into the forest, shattering trees—but exhaustion clawed at him. His cloak was shredded, breath ragged, the abyss within him straining, boiling.
+
+He knew he couldn’t win a battle of endurance.
+
+So he changed tactics.
+
+No more blind aggression.
+
+He moved with restraint—dodging, watching, letting them come to him. A style he loathed—defensive, evasive, patient. But it was the only way.
+
+Then he saw it.
+
+A scar.
+Faint, but deep.
+On the Dark Guardian’s left side.
+
+Old. Vulnerable.
+
+It wasn’t much. But it was something.
+
+The challenge was reaching it.
+
+Oboo left no openings—his foresight, his positioning, his blades—it was impossible to slip past.
+
+So Father Crow did the unthinkable.
+
+He gathered his last reserves and unleashed a massive abyssal blast—not to kill, but to distract.
+
+The ground split. Shadows screamed. The blast struck Oboo head-on, knocking him back.
+
+Thirty seconds.
+
+That was all he bought.
+
+It was enough.
+
+Father Crow lunged, halberd roaring with void, and drove it into the scar.
+
+Steel met weakness.
+Abyss met flesh.
+The Dark Guardian staggered, then crumbled, the light fading from his form.
+
+Silence.
+
+Then—
+
+Oboo rose.
+
+But something was different.
+
+The calm mind of a god was gone.
+
+Only rage remained.
+
+His expression twisted, his eyes burning with fury. His movements lost their perfect timing—foresight blurred by emotion.
+
+And in that chaos… Father Crow found his chance.
+
+Strike by strike, he turned the tide.
+
+And just as he prepared the final blow—
+
+Oboo vanished.
+Father Crow stood among the wreckage. Breathless. Bloodied. Victorious?
+Perhaps.
+The Dark Guardian lay still.
+Oboo—disappeared.
+But in Father Crow’s mind, one truth echoed:
+A god of knowledge and a shadow of old power had faced him—and retreated.
+Whatever came next, the world would know:
+Father Crow didn’t just survive gods.
+He defied them.
+After the brutal battle, Father Crow collapsed beside the smoldering ruin of what once was a battleground between gods. Snowflakes drifted down like ashes. He laid in silence, halberd buried beside him, eyes half-closed as the abyss within him finally grew still.
+For the first time in ages… he rested.
+Hours passed.
+Maybe more.
+And then—a flash of light.
+Blinding. Divine. Ancient.
+When it faded, the battlefield was empty. No crows. No halberd. No warrior. Just a small figure… swaddled in black feathers, crying softly in the snow.
+Father Crow—reborn.
+A baby.
+His abyssal power? Gone.
+ His memories? Erased.
+ His past? Nothing but dust on the wind.
+Hovering above him was a figure draped in flowing scrolls and silver ink. A god whose eyes shimmered with infinite knowledge—Shiashlian, another god of knowledge  Unlike Oboo, Shiashlian believed in compassion, in redemption… in rewriting what was broken.
+And Father Crow was broken.
+Shiashlian looked down at the infant with somber curiosity, then reached into the void and pulled a face from memory—Gabriel’s father.
+The illusion settled over him like armor, and with a soft whisper of ancient language, Shiashlian cloaked them both in secrecy.
+He took the baby in his arms and vanished into the falling snow, traveling to a remote shack hidden deep within the frozen north.
+There, far from gods and overlords, wars and vengeance, the god of knowledge—wearing the mask of a father—began a new experiment:
+To raise the former terror of the world not as a monster, but as a man.
+ To forge kindness from ash.
+ To see if evil… could be unlearned.
+For 16,000 years, Shiashlian raised Father Crow in secret—hidden from gods, monsters, and time itself. Using divine restraint, Shiashlian never let him age past his late teens, hoping to keep the fire of rebellion small, manageable. In that small shack buried in eternal snow, the former conqueror became a humble son.
+Or so it seemed.
+Then, one day, while out foraging, the boy—Gabriel—stumbled across a frozen lake. The snow was thick. The air was still. But something in the shape of the ice, the slope of the hills, struck him like lightning.
+This lake.
+He knew it.
+ Not from this life.
+ From another.
+The lake where he first touched the abyss.
+And in that instant, the memories returned—like a flood, violent and absolute. He remembered everything. His power. His pain. His rise. His family. His kingdom. His rage.
+The storm that had been buried for millennia ignited once more.
+He walked back to the shack, aura shifting with every step—no longer the obedient son, but the shadow king reborn.
+Shiashlian felt it instantly. That familiar, suffocating presence. But he didn’t understand how.
+The door creaked open.
+"Hello, Dad," Father Crow said with a malicious grin.
+
+Shiashlian froze. That voice—impossible, familiar, wrong.
+
+His eyes widened as he felt the shift.
+The spell was broken.
+
+He stood up fast, grabbing his staff, heart pounding.
+
+"I may not be as strong as Oboo," Shiashlian said, backing away cautiously, "but in your current state… even I can defeat you."
+
+Father Crow raised a hand and summoned his halberd—
+But his teenage frame buckled under its weight. The weapon dipped, too heavy, too slow.
+
+Shiashlian chuckled.
+
+"Do not underestimate me," Father Crow snapped, eyes flaring with abyssal glow.
+
+Then, without pause, he dismissed the halberd… and summoned his rapier.
+
+A thin, wicked blade of green-black abyssal steel.
+
+"And as thanks for not killing me all those years ago," he added coldly, "I'll make your death quick."
+
+Then he moved.
+
+Faster than Shiashlian could react.
+
+Faster than thought.
+
+And just as promised—
+Father Crow killed him in a single, clean strike.
+As Shiashlian’s body crumpled, Father Crow felt something shift within him. Two new powers awakened:
+ – The ability to change his age at will.
+ – And the ability to alter his appearance, taking on the face of anyone he chose.
+But as the haze of battle faded, a thought lingered: Oboo… might still be alive.
+ After all, killing him should have granted another power—but it hadn’t.
+Still, that mystery could wait.
+For now, he needed to return to his castle.
+As he stepped out of the shack, a ripple in space twisted ahead of him. A figure emerged—a woman cloaked in purple mist, wielding a curved black scythe.
+“Hello, Father Crow,” she said calmly. “I’m Zila—the witch goddess of the undead. But I’m not here for Shiashlian. I’m here… for you.”
+Father Crow narrowed his eyes.
+“I knew both of them would fail,” Zila continued. “but i made a promise. If Shiashlian died, I would stop you for him.”
+Before he could react, she snapped her fingers.
+Chains of glowing violet erupted from the ground, wrapping around Father Crow’s limbs and throat. He struggled—but they moved faster than even he could. His strength couldn’t break them.
+“You see, killing isn’t really my thing, darling,” Zila said, winking.
+A portal opened beneath his feet—blazing red, glowing with judgment.
+“Enjoy hell.”
+Gabriel screamed, not in pain, but in fury, as he was dragged into the abyss below—down, down, into Hell’s Court, where divine judgment awaited.
+Zila watched the portal close.
+Father Crow screamed, “You bitch!” as he was dragged into the abyss—down, down, spiraling into the black void of Hell’s Court, where divine judgment awaited.
+Chains pulled him through twisted caverns and rivers of fire, until he was slammed into the center of a vast courtroom carved from obsidian and bone. Demons and demon gods gathered in rows, their glowing eyes fixed on him, their whispers thick with anticipation.
+At the head of the court, the Devil himself stood, draped in a regal cloak of flame and shadow.
+“Ladies and gentlemen,” the Devil began, voice booming through the chamber, “we are gathered to judge the actions of the accused—Father Crow—for a multitude of crimes across the verse, including—”
+“Do I get any say in this?” Father Crow interrupted coldly, still bound in chains. “Or is there anything I can say that would actually change my fate?”
+The Devil looked annoyed. “No—”
+“Then just give me the punishment,” Father Crow snapped. “Let’s not waste everyone’s time.”
+From the crowd, Charly’s voice echoed with amusement. “He has a point.”
+The Devil sighed, visibly irritated. “Fine. Father Crow, your sentence is this: you are to know defeat—repeatedly and endlessly. You will face creatures stronger than you, one after another. Each one will kill you. Again, and again" He snapped his fingers.
+In a blink, Father Crow was gone—cast into a cursed realm where colossal beasts, god-slaying warriors, and unspeakable horrors awaited him. One by one, they tore him down. Over and over. He died. Reformed. Fought again. Lost again.
+After 300 brutal deaths, the Devil appeared before him once more—smiling like a man who enjoyed watching hope unravel.
+“Well, how have you been?” he said, voice mockingly warm. “It’s been so long.”
+Father Crow, beaten, bloodied, and barely standing, spat back: “Fuck you.”
+The Devil chuckled. “Thought so. Anyway, I’m here to make a deal.”
+Father Crow rolled his eyes. “Just get to the point. I’d rather die again than sit through another one of your speeches.”
+The Devil sighed. “Fine. Most of my demon gods have died. and they retruned but they are Weak. Foolish. Unworthy. I want you—and your army—to fight them.”
+Father Crow frowned. “Does my army still exist?"
+The Devil nodded. “Oh, right. You’ve been away. Shiashlian replaced you with a human who carried your aura—well enough to fool even your closest commanders. Even after his death, the illusion held. Your empire still stands… and it’s one of the strongest in the world. You have a real chance.”
+Father Crow stared for a long moment, letting the weight of it all sink in.
+ “So why me?”
+“Because the other overlords who could’ve done it… refused,” the Devil replied flatly.
+“I see.” A slow smirk pulled at the corner of Father Crow’s lips.
+ “So… does this mean I get to beat the shit out of Charly?”
+The Devil didn’t hesitate. “Yes.”
+That was all he needed.
+The grin on Father Crow’s battered face widened. “Then let’s do it.”
+He drew in a slow breath and straightened his posture, his broken body already starting to regenerate.
+“How much time do I have to prepare?”
+“Two months,” the Devil answered. Then, with a snap of his fingers—
+—everything changed.
+In an instant, Father Crow stood once more at the gates of his castle, staring up at the towering black spires. The cold wind blew against his cloak, carrying with it the scent of ash, steel, and blood.
+The familiar weight of his domain settled around him.
+His empire… awaited.
+As Father Crow stepped through the towering black gates of his castle, a few of his generals surged forward, weapons drawn, mistaking him for an intruder. He didn’t even flinch. One gaze from his abyssal eyes was enough to freeze them in place.
+But the true surprise came when he entered the throne room.
+There, gathered before him, were his top generals—and as one, they bowed.
+Father Crow paused.
+“...How did you know?”
+One of his top five generals, the sharp-eyed Kalvis, rose first. His voice was calm, respectful, and sure.
+“Most of us aren’t idiots, my lord.
+ Your aura is unique. No one else commands it. No one else could ever mimic it.
+ And second…” he allowed a small smirk, “only you could fight off those idiots and not even break a sweat.”
+He straightened her posture, hands behind her back.
+“Honestly, it’s a miracle the human who replaced you fooled anyone for this long. Despite knowing that he was a human we kept the kingdom strong. And stronger still, waiting for your return.”
+Father Crow nodded slowly, a dark satisfaction in his eyes. But then, his gaze shifted to the nervous human sitting awkwardly on the throne—his throne.
+The man looked like a deer caught in a storm of abyss.
+“You have nothing to worry about, human,” Father Crow said with a faint grin.
+ “I’m not going to kill you.”
+He raised a hand and snapped his fingers. In an instant, his own true form returned—tall, cloaked in abyssal power, his shadow spilling across the stone floor like smoke. The human’s form shimmered and shifted—becoming more human, more mundane.
+“You’ve done well.
+ You fooled an empire, kept it from crumbling.
+ That takes wit.
+ You may join our ranks.”
+The man’s face lit up with relief and joy. He leapt to his feet.
+“Oh my gods—thank you, my lord!
+ Being a human again feels amazing.
+ I—I’m Caleb. I’ve heard so many stories about you.
+ Honestly, I was sure you’d kill me the moment we met. What a relief!”
+Father Crow chuckled, just a little—then turned toward his generals.
+“So… in two months, we’re going to be attacked by the demon gods.”
+A hushed tension fell over the room—until Caleb suddenly blurted out:
+“Holy shit!”
+Father Crow ignored him and continued, calm and direct:
+“But if you follow my plan, we should be able to win this.”
+Caleb piped up again, bouncing slightly on his heels:
+“Oh! Oh! What’s my part in the plan?”
+Father Crow looked at him, brow slightly furrowed.
+“...Are you okay?”
+Kaida answered dryly without missing a beat:
+“Don’t mind him, my lord.
+ Probably a side effect of the relief—no longer needing to pretend he’s you… or that he’s not a human.”
+Father Crow nodded in understanding.
+“Ah. I see.
+ Caleb—go do what you want for now. In one month, I’ll tell you your part.”
+Caleb grinned, gave an awkward bow, and skipped out of the room. The remaining generals watched in disbelief.
+One of them muttered:
+“So… you learned empathy while you were gone?”
+Father Crow paused.
+“Hmm… I suppose I did.”
+Another general raised a brow.
+“And how do you even know about this attack?”
+Father Crow replied coolly:
+“Because I made a deal with the Devil himself—
+ If we win, he sets me free.”
+Two more generals snapped forward in protest.
+“This is insane! Do you know how powerful the demon gods are?”
+“You’re risking all our lives for this?!”
+Father Crow’s patience snapped.
+He snapped his fingers—and both generals collapsed, clutching their heads in agony as an unbearable pain surged through their minds.
+“I don’t recall asking for your opinion,” Father Crow said coldly, his voice echoing through the throne room.
+ “Now… shall we continue?”
+The rest of the room fell into grim, obedient silence.
+Father Crow stood at the center of the throne room, his voice booming with command:
+“Gather every single general.
+ Every single soldier.
+ From every realm.
+ I want them all here.”
+A ripple of tension passed through the gathered commanders. One of the older generals stepped forward, concern in his voice:
+“My lord… if we pull every force to the capital, we might lose territory. Entire realms could fall while we’re gathered here.”
+Father Crow didn’t even blink.
+“I don’t care,” he said coldly.
+ “If we lose ground, we’ll conquer it again.
+ And this time, we’ll crush it harder.”
+No one dared to speak after that. Orders were given. Portals opened. The drums of war began to beat louder.
+A month passed.
+Father Crow had spent every moment of it rebuilding his strength, tracking down his commanders, and summoning his army back from the corners of the world. When the call came, even the traitor generals returned—among them, Koronis and Byleistr.
+Their appearance shocked many… but what followed was even more unexpected.
+
+A new ally arrived: the demon lord Gaster Stone.
+
+He met Father Crow in the war room, where abyssal flames cast long shadows over towering maps and glowing sigils.
+
+Father Crow studied him. “What’s your reason for joining me?”
+
+Gaster shrugged, relaxed but unreadable. “I’m here to support Koronis and Byleistr. They serve under me now. I’d rather make sure they survive this war—and that you don’t backstab them.”
+
+He grinned. “Also… I’ve always wanted to meet you in person.”
+
+Father Crow raised an eyebrow, then gave a sharp smirk.
+
+“Loyalty… rare in your kind.”
+
+“Teaming up with you is rare among any kind,” Gaster replied.
 
 
 
