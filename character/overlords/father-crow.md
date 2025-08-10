@@ -1351,7 +1351,650 @@ Father Crow raised an eyebrow, then gave a sharp smirk.
 “Loyalty… rare in your kind.”
 
 “Teaming up with you is rare among any kind,” Gaster replied.
+Without another word, Gaster laid out everything he knew about the demon gods—battle tactics, strongholds, weaknesses.
+
+With this trove of intelligence, Father Crow began reshaping his army. He split his forces into elite units, each one trained and armed to take down a specific demon god.
+
+In his judgment, three posed the greatest threat: Blood, Magorath, and Belphegor.
+
+They would be the first to fall.
+
+Kaida and Caleb led the first wave of the assault.
+As Father Crow anticipated, two demon gods—Beelzebub and Belphegor—charged forward to meet them.
+Kaida didn’t hesitate. Her body glowed with layered enchantments as she raised both hands and unleashed a colossal blast of her magic.
+The explosion struck both gods directly.
+Beelzebub and Belphegor were obliterated on impact.
+Meanwhile, Blood, lurking nearby, intercepted what he believed was a surprise arrow headed for him. He cut it cleanly mid-air with his blade.
+But it was no ordinary arrow.
+Asmodeus, watching from above, recognized it too late—a Death Arrow.
+“Get out—!” he shouted, but before he could teleport, the arrow detonated.
+Both Blood and Asmodeus were consumed in the blast.
+From the shadows, Magorath emerged, eyes locked on Kaida, who now knelt—breathing heavily, drained from her spell.
+He charged.
+But Caleb was faster.
+He blocked Magorath’s massive blade with his own and raised a glowing shield around them both.
+The demon god roared, hammering at the barrier. But as he struck, a second wave of energy struck him from behind—
+ a jet of flame as hot as the sun, fused with abyssal magic.
+Magorath screamed as his body burned, his soul unraveling in fire and darkness.
+Suddenly, arrows rained down from above.
+Charly, standing among the demon gods, looked up and spotted the culprit—a lone archer on the castle’s highest spire.
+With a smirk, he raised his hand and used his magic to reverse the arrows mid-flight.
+They tore through the sky, redirected with deadly precision.
+The Green Eye, a sacred artifact of Father Crow’s army, shattered under the barrage. Vornyx, the Eye’s guardian, was nearly slain.
+But at the last moment, General Orynth leapt into the path, taking the worst of the impact.
+Elsewhere, one of Father Crow’s elite assassins—also Orynth—engaged enemy flames infused with abyssal power.
+ The unnatural fusion seared his face, taking his right eye.
+He would’ve bled out…
+…if not for Annabelle
+Her hands glowed with green light as she knelt beside him, whispering ancient healing spells. His eye slowly regenerated—restored through her magic.
+Back on the battlefield, Charly raised his voice.
+“Archers are down!
+ Attack!”
+The demons surged forward like a wave of flame and fangs.
+Caleb scooped up the exhausted Kaida and raced back toward the castle, while the other generals stepped forward to hold the line.
+Father Crow watched the battlefield burn.
+Smoke curled into the sky. The cries of the dying echoed off shattered stone. Magic cracked the air like thunder.
+And then…
+ He stepped down from the throne.
+Halberd in hand. Aura rising.
+ The green-black abyss swirled around his feet, coiling like smoke from a dying world.
+It was time.
+His turn.
+He walked through the chaos—straight toward Charly.
+The demon god stood at the heart of the battlefield, cloaked in violet flames, weaving spells with a bored expression.
+As Father Crow approached, he grabbed a broken stone and hurled it with unnatural force.
+Charly didn’t even flinch.
+The rock stopped mid-air—hovered for a moment—then shot back with double the speed, slamming into Father Crow’s shoulder and cracking the ground behind him.
+Charly grinned mockingly.
+ “Really? You thought that would work?” he laughed. “You know I can’t be harmed by ranged attacks. Come on, you should remember that.”
+Father Crow didn’t answer.
+ He lunged.
+The halberd carved the air, slicing toward Charly with brutal precision.
+The demon god cursed under his breath and leapt back, barely avoiding the strike.
+The gap closed too quickly.
+Charly stumbled—he was a master of arcane destruction, not close-quarters combat. And Father Crow knew it.
+Every swing of the halberd was heavier than the last, coated with abyssal fury. Sparks flew as blade met shield, magic clashed with metal.
+Charly was on the defensive.
+ Backpedaling. Struggling to create distance.
+And Father Crow… kept coming.
+Blow after blow drove Charly backward. For the first time in centuries, the smug demon god found himself on the retreat.
+“You’re seriously annoying,” Charly spat, summoning a glyph beneath Father Crow’s feet.
+It erupted in a blast of crimson magic, sending shards of stone and dust high into the air.
+But through the smoke—
+ Father Crow stepped forward, untouched. And furious.
+“You think I’m letting you off easy,” he growled, aura flaring, “after you threw me out of your bar?”
+Charly’s smile twitched. “That was just business—”
+CRASH!
+Father Crow’s halberd smashed down. Charly barely dodged, flipping backward as the strike split the stone floor. A violent shockwave rippled outward, knocking over lesser demons nearby.
+“Okay, okay,” Charly muttered, brushing embers off his coat. “Now you’re just being dramatic.”
+But his voice had lost its usual ease, and sweat shimmered on his brow.
+Father Crow kept coming.
+Desperate, Charly raised his hand—and rose-like crimson vines burst from the ground, reaching to bind Father Crow.
+But Father Crow saw them.
+And ripped them apart mid-surge, scattering thorns and petals across the field.
+He charged again—relentless.
+Charly flung his hand out, and a shimmering barrier formed between them.
+“Okay—time out!” Charly shouted. “This is some bullshit.”
+His voice cracked with frustration.
+“Not only do you seem more prepared than we expected—your powers are absolute bullshit! And I know that’s rich coming from me. But your godlike strength is really starting to piss me off!”
+He raised his hand and drew several glowing white circles into the air. The barrier vanished.
+From the circles, holy energy burst outward, flooding the battlefield. At the same time, fresh rose-vines of light and thorns erupted from the ground, forcing Father Crow to retreat several steps, dodging gracefully.
+At last, Charly had his distance.
+“Did you forget?” Charly sneered. “I’m one of the very few demons that can use holy magic—and—”
+Father Crow interrupted coldly, a smile tugging at his lips.
+“—And that if one drop of my blood touches your petals, you’ll know all my powers, weaknesses, and spells.
+ Yes, Charly. I’m aware.”
+Charly blinked.
+“You’re a white rose demon, one of the last of your cursed bloodline,” Father Crow continued. “And a dagger-tier god.”
+Charly’s smile faded into a scowl. “And you still dare challenge me to a one-on-one?”
+Father Crow stepped forward, halberd crackling with abyssal smoke and embers. His smile widened.
+“For all of those reasons—and more—
+ it’s going to feel so satisfying to kill you.”
+Without a word, the battle resumed.
+But this time—Charly had the upper hand.
+The distance between them gave the demon god the space he needed to cast spell after spell, each one sharper, faster, and more precise than the last.
+Father Crow struggled.
+He’d known that closing the gap would be key—but he hadn’t realized just how brutal the distance would be.
+Still, he pushed forward, weaving through holy vines and arcane blasts. Step by step, he fought to reach Charly again.
+But just as he closed in—
+ One of Charly’s rose-vines whipped around and slashed him across the torso, lifting him into the air and slamming him to the ground with brutal force.
+For the first time in the fight—Father Crow bled.
+Charly’s eyes gleamed. He raised his staff, and the blood was sucked from the air toward the glass chamber atop his scepter, swirling like ink in water.
+Just before it reached his lips—
+CRASH!
+Father Crow surged forward and shattered the glass with a clean strike.
+“Did you really think it would be that easy to drink my blood?” he growled, stepping past Charly.
+“You little bastard,” Charly snapped, his smirk returning despite his frustration. “If you think that gives you an advantage, you’re wrong. I’ve got plenty of tricks left—and it’ll only take me two minutes to remake that vial.”
+“I know,” Father Crow replied calmly. “But I only need a few seconds…”
+He pointed past Charly.
+“…for that to hit you.”
+Charly turned—
+His face dropped.
+ “Oh, mother f—”
+BOOM.
+A massive blue-dark blast—a projectile forged from moonlight and dark energy—slammed into Charly from the side, obliterating half his body in a blinding eruption of light and force.
+The blast was so powerful, it blew Father Crow backward, sending him skidding across the stone floor, cloak scorched and armor cracked.
+But the blast didn’t stop there.
+It roared across the battlefield—tearing through anything in its path—and finally collided with Satan himself, who had been observing from a high perch of blackened stone.
+Both were erased in an instant.
+Silence fell, broken only by the rumble of the fading energy echoing across the smoking field.
+Father Crow rose slowly from the cracked ground, his boots crunching against ash and molten stone. He stared at the horizon, watching the blast’s afterglow drift like a dying aurora.
+“Well,” he muttered, voice hoarse. “I’ll be damned. Gaster’s plan actually worked.”
+From within the haze, something stirred.
+A half-disintegrated Charly, scorched and missing chunks of flesh, managed to reform just enough of his face to glare.
+“Well played… asshole,” he coughed, blood dribbling from his cracked lips. “You’re still banned from all my bars.”
+And with that, he vaporized into smoke, retreating to whatever plane still held him together.
+
+Two More Down. Four to Go.
+The air stank of blood and burning magic.
+Father Crow moved through the battlefield slowly, his halberd dragging behind him, the steel edge scraping sparks from the stone like a whispering omen. His presence pulled the very shadows closer.
+He could feel it.
+Static and Nightmare were gone—snuffed out. Their auras faded into the void, leaving only Mammon and Leviathan burning like dying stars in the distance.
+But as he reached the heart of the battlefield, he was met with something unexpected.
+Leviathan—the storm serpent, the devourer of fleets—was surrounded. Wounded. Weak. Dying.
+And around him, Father Crow’s generals closed in, cutting down his scaled minions and pounding the god’s defenses into dust. The tide had turned.
+But it wasn’t that sight that made Father Crow stop. It was the figure standing at the center of it all—Gaster Stone, his staff planted in the earth, face calm and collected.
+Father Crow’s grip tightened. His halberd snapped into an offensive position, and he began walking toward him.
+Step by step.
+The ground cracked beneath his boots. The generals noticed but said nothing. They knew what was coming.
+Just as the halberd was about to strike, a blade intercepted it—Koronis.
+“Enough,” said Koronis. His voice was steady, but his eyes were tired. “He didn't expect the blast to be this powerful but it did the job so let it go” 
+Father Crow’s eyes burned with abyssal fire.
+“Don’t expect a thank you,” he growled, his halberd pressing against Koronis’s blade.
+Koronis sighed. “I know.”
+Behind him, Gaster Stone smiled, utterly unfazed.
+“Well,” Gaster said cheerfully, “the all mighty father can't handle a blast”
+Koronis didn’t even look back. “I will not block another attack for you.”
+Gaster raised both hands in mock surrender. “I was only joking. It was a real pleasure, Father Crow. And with that…”
+He snapped his fingers.
+In a flash of light and dust, Gaster Stone, Koronis, and Byleistr vanished, leaving only the dead, the dying, and the distant echo of cruel laughter behind.
+Father Crow stood there a moment longer, his halberd humming in his grip.
+Then he turned toward the last fading aura—Mammon.
+Mammon fell faster than expected.
+Despite being one of the last standing demon gods, Mammon’s greed had made him predictable, and Gaster’s intel proved precise. It wasn’t long before the final blow was struck—and with it, the battle ended.
+The demon gods were dead.
+ Their armies broken.
+ The war, won.
+Father Crow stood atop the blood-soaked field, the storm above still crackling faintly with fading divine energy. He raised his halberd once, and the signal was clear: assemble.
+Within moments, what remained of his army gathered in the throne hall. Only 64 generals remained—down from hundreds. The toll was heavy.
+Father Crow’s voice echoed like thunder.
+“Well done,” he began, cold and composed. “But disappointing. We’re down to sixty-four. A shameful number for a kingdom that just conquered Hell’s elite.”
+He turned his gaze toward Caleb, now standing straight, though pale with exhaustion and bloodstains still fresh on his armor.
+“Caleb,” Father Crow said, “you’ll resume your role as me. The Devil will be arriving soon to take me back. While I’m gone—reclaim all of our lost territory. All of it. Before I return.”
+Caleb hesitated. “But… sir, we lost so many winged generals. Wouldn’t it be easier to just… kill the Devil too?”
+That question made Father Crow stop.
+Then slowly—he smiled.
+“Did no one teach this boy anything about the Gods of Hell?” He turned to the room. “Very well. I’ll explain it once.”
+He stepped forward, his voice dropping low and sharp.
+“The Devil has the power of every demon under him. That includes the Fourteen Sins we just defeated. You think I—we—could take on a god who carries the strength of all of them combined? Then you are all fools.”
+Caleb stepped forward again, desperate now. “Please, there must be something else we can do. We don’t have the numbers left. Just… don’t make me go back to pretending again.”
+Father Crow’s face turned stone-cold.
+“I don’t care,” he said. “Make it work. Lie. Manipulate. Conquer. That’s the job.”
+ “If I return, and even one border is lost—I’ll punish all of you.”
+He let that hang in the air.
+Silence.
+Then the generals dropped to one knee in unison, heads bowed.
+“Yes, Father,” they said.
+Father Crow turned his back to them, the shadows already stirring behind him—the Devil was coming.
+And once again, he would walk into hell… alone.
+“Hello, Father Crow,” said the Devil, lounging atop a throne of molten bones, his voice smooth as oil—and twice as slick.
+“You did well—just as I expected. You killed them all. Well done, indeed.”
+ He clapped slowly, mockingly, the sound echoing like cracks in the obsidian walls of Hell’s Court.
+Father Crow stood motionless, halberd planted at his side.
+ Sparks danced at the tip of the blade like restless spirits.
+“I was expecting all Fourteen Sins,” he said, voice low and unreadable. “Yet only eleven showed. Why is that?”
+The Devil’s grin widened.
+“None of your business.”
+A flicker of something dangerous lit in Father Crow’s eye.
+“They’re not really dead… are they?”
+The Devil chuckled, then clapped once—sharp, like thunder.
+ “Oh? You noticed. Impressive. And yes—you’re correct.”
+Father Crow’s lips curled into a cold, eager smile.
+“Good,” he said. “I can’t wait to stab each one of them with my halberd. Again.”
+“You really think you can?” the Devil mused, stretching lazily on his throne. “You’re lucky, you know. Leviathan and Mammon couldn’t access their full power in your realm. If they had…”
+The air around Father Crow twisted. The abyss pulsed with rage.
+ “You dare let them hold back against me?” he snarled.
+The Devil’s laughter echoed like shattering glass.
+“Must you always complain?” he said, waving a clawed hand. “You got what you wanted—victory, glory. And I got what I wanted.”
+He stood.
+The heat in the chamber spiked, the throne pulsing like a beating heart of fire.
+“Now, let’s get down to business.”
+His voice darkened.
+“I could only find three hundred creatures. It wasn’t enough to trap you here forever—so I… got creative. I built scenarios, each shaped like the death wishes other beings once made against you. In them, you suffered. And this time—you died.”
+He paused for effect, then continued.
+“So far, out of the three hundred, you’ve only managed to counter 163 of them.”
+He smiled wider.
+“And you’ve died exactly 52,369 times.”
+The number hung in the air like a guillotine.
+“But don’t worry,” the Devil added. “I originally planned for one million deaths.”
+Father Crow’s eyes narrowed.
+“You want me to suffer longer.”
+“Yes,” the Devil said simply, without shame.
+ “But I’m willing to compromise.”
+He descended from his throne, shadows spiraling around him like black serpents.
+“I’ll restore the original challenge. Just the 300 creatures. There are 137 left who haven’t killed you yet.”
+“But,” he added, stepping closer, “if you encounter any of the 163 creatures who have already killed you again, you’ll be free.”
+He grinned, eyes glowing with malevolent curiosity.
+“So tell me, Father Crow…”
+“Will you die 137 more times…”
+“Or will you encounter one of the 163 that already killed you?”
+The room pulsed with silence, broken only by the Devil’s final words:
+“I can’t wait to find out.”
+After only fifty-three more deaths, Father Crow once again stood at the edge of battle—this time facing the Blue Flame God.
+And then—
+ everything froze.
+Time stopped.
+Flames hung still. Dust froze in midair. The roar of war vanished into silence.
+The Devil appeared before him, stepping through a ripple in reality, arms lazily crossed.
+“What a shame,” he sighed dramatically. “I was planning on you dying a little more. But oh well… a deal is a deal.”
+He grinned.
+“Take care, Father Crow. It was a pleasure torturing you.”
+The Devil gave a mock salute.
+“You’re free of all charges. Bye-bye.”
+And with a snap of his fingers—
+the world shattered.
+
+Father Crow awoke in the heart of his castle.
+At first, it felt normal.
+But something was off.
+There was a stillness—not the peace of victory, but the quiet that follows deception. He moved through the halls, talons clicking on stone.
+The deeper he went, the stronger the wrongness became.
+And then he found it.
+A blooming garden—right inside his castle. Roses, moon lilies, and thorny vines tangled together around two chairs and a tea table.
+Sitting calmly in one of the chairs was none other than Zila, the Witch Goddess of the Undead.
+“How the fuck did none of my generals notice you?” Father Crow growled, summoning his halberd—it appeared in his hand with a pulse of green-black smoke.
+Zila smiled sweetly. “Oh, that’s because I only wanted to see you, silly.”
+Without another word, Father Crow lunged.
+But Zila was fast. She rose in one smooth motion, her scythe clashing with his halberd mid-swing. The air cracked with violent magic.
+“What do you want?” he demanded, eyes locked with hers.
+Zila’s expression cooled. “The Devil might have forgiven your sins…”
+ Her voice dropped like frost.
+ “…but I haven’t.”
+“If you think your little chain trick will work twice,” he hissed, pressing harder, “you’re more foolish than I thought.”
+Zila smirked. “Cute. Someone’s feeling confident.”
+With a sudden twist, Father Crow knocked her off balance and kicked her hard into the stone wall. Before she could recover, he hurled the halberd with deadly precision.
+She barely dodged. The blade sliced clean through her robe and struck the stone behind her with a violent crack.
+“I’m sorry! I’m sorry!” Zila laughed, raising her hands. “Can we start over?”
+Father Crow shifted into his child form, his speed increasing, and summoned his rapier as he stepped forward, blade poised to strike.
+“I won’t ask again. What do you want?”
+Zila blinked. “Owo, you’re so cute—I didn’t know you could do that.”
+Seeing the look in his eyes, she added quickly, “But what I want… is to have a cup of tea with you.”
+ Father Crow’s expression twisted in confusion.
+“Well, yes,” Zila said cheerfully, brushing ash from her sleeve. “I find you… fascinating. I think having a conversation would be fun. And I like tea.”
+“Talking about what, exactly?” he asked, still wary.
+“Whatever you want,” she replied. “I’ll share what I know. You share what you know.”
+“And why would I ever agree to that?” Father Crow asked. “I can acquire any knowledge I desire.”
+“Oh, certainly. You have access to the knowledge of the living. But I…”
+ She leaned in, her voice soft and sinister.
+ “I know what the dead knew. Their secrets. Their regrets. Their last whispers before the void took them.”
+She tilted her head. “And besides—don’t you think it would be… fun?
+ Two powerful beings. Both capable of killing the other at any moment. Just sipping tea… and talking.”
+Father Crow let out a dark, low laugh.
+“I’ve seen your tricks. What could you possibly—”
+CRACK.
+Zila slammed her scythe into the ground.
+Instantly, pale undead hands erupted from the earth, gripping Father Crow’s arms and legs, yanking him down with unnatural strength. He struggled—hard—but he couldn’t break free.
+“You forget,” Zila whispered, stepping close with inhuman grace, “I’m the Witch Goddess of the Undead.
+ And you haven’t seen half of what I can do.”
+She walked over, elegant and unbothered, and gently touched the edge of her scythe to his throat.
+“So… what will it be?”
+Father Crow’s eyes burned with fury. But finally, he spoke.
+“Fine,” he said coldly. “But nothing we share reaches another soul. Dead or alive.”
+Zila smiled, fangs glinting behind her lips.
+“But of course.”
+She turned back toward the garden, motioning to the empty chair beside hers.
+“Now then… milk or honey?”
+“Not now,” Father Crow said sharply, shifting back to his true form. “I have generals to manage.”
+Zila sat back down, unfazed.
+“That’s okay. I’ll be right here. Waiting.
+ Take your time.”
+“Not now,” Father Crow muttered, pulling free as the hands released him. “I have generals to manage.”
+Zila sat back down, completely unfazed.
+“That’s okay,” she said with a warm smile. “I’ll be right here. Waiting.
+ Take your time.”
+Father Crow entered the war chamber.
+Dark flames flickered from the braziers lining the cold stone walls. The air was heavy, pulsing with restrained power. At the center, Father Crow stood—his presence alone silencing the room.
+Only forty-five generals stood before him.
+His gaze swept across them like a blade.
+“Caleb,” he said, voice low but sharp.
+Caleb stepped forward, tension coiled in his shoulders.
+“Well, sir… we didn’t expect your return so soon. We thought we had more time. Fifteen generals are still out reclaiming lost territory. We’ve nearly recovered ninety-five percent of what was lost. And… we’ve lost contact with five.”
+A heavy pause settled over the chamber.
+Father Crow exhaled through his nose—a slow, controlled breath that felt heavier than a scream.
+“You don’t need to be nervous, Caleb,” he said calmly. “You still have value.
+ I won’t kill you—yet.”
+He snapped his fingers.
+Caleb’s body shimmered briefly before shifting—his form returning to its human disguise.
+“Take my assassins. Find the fifteen. Make sure they finish what they started. And track the missing five—dead or alive. Now go.”
+Caleb bowed quickly and exited.
+As the doors closed behind him, Father Crow turned back to the others.
+ His expression darkened.
+“Now that Caleb is gone…” he said slowly, “one of you better explain to me how the hell none of you noticed there’s a witch in my castle.”
+Silence.
+Finally, one general stepped forward, hesitating.
+ “We confirmed two of the missing five are dead, sir. We… assumed she was here doing her godly duty.”
+That was a mistake.
+In the blink of an eye, Father Crow crossed the room.
+He slammed the general into the stone wall, one hand crushing his throat. The impact cracked the stone behind him.
+“I have never allowed a god into my castle,” he snarled.
+ “Not for death.
+ Not for mercy.
+ Not for prophecy.”
+His grip tightened—black energy crackling around his fingers.
+“So tell me… if I kill you right now—
+ will any god come save you?
+ Will any lift a hand for you?”
+The general’s eyes widened in terror.
+“Let’s find out.”
+CRACK.
+With a single twist, Father Crow crushed his windpipe and dropped the lifeless body to the floor with a dull, final thud.
+He turned to the others, eyes burning.
+“Anyone else want to play stupid?”
+Silence.
+“Good. Then listen carefully.”
+His voice was sharp as ice.
+“First: reinforce all held territories at double strength. That way you’ll be free to help the others reclaim what we lost. I want one hundred and fifty percent of our territory back—nothing less.
+Second: bring me your best generals.
+ It seems I need to find replacements for the winged ones we lost.”
+He pointed to the corpse on the ground.
+“And let me make this clear—if I find out any of you allowed gods into this castle again, he won’t be the only one punished.”
+He paused.
+“Am I clear?”
+“Yes, Father!” they shouted in unison.
+Satisfied, Father Crow gestured for them to leave. One by one, they filed out—silent, swift, and shaken.
+
+He returned to the garden.
+The same cursed, blooming place.
+And there, as if no time had passed, Zila still sat—legs crossed, tea in hand, her expression serene.
+“Welcome back,” she said sweetly.
+ “Did everything go well?”
+Father Crow stood beside the garden’s twisted flowers, his gaze locked on Zila.
+“Tell me,” he said coldly, “I’ve heard witches often split into two paths—warriors and mages. Is that true?”
+Zila gave a casual nod.
+ “Yes, that’s correct.”
+“Which one are you?”
+She smiled.
+ “A mage, obviously.”
+Without warning, Father Crow attacked.
+His form blurred as he shifted between weapons—halberd strikes, dagger throws, rapier thrusts. Each attack was precise, brutal, unpredictable.
+But Zila moved like water through fire, countering with uncanny grace—her scythe sweeping wide arcs, necrotic shields flickering into existence, bones rising from the garden to block strikes.
+As their flurry ended in a short stand-off, Father Crow’s expression darkened.
+“Interesting…” he muttered.
+ “What else are you lying about? And where are the souls of my two generals?”
+Zila didn’t flinch.
+ “First—I'm not lying. I am the Goddess of the Undead. My magic draws strength from corpses—and we are, conveniently, in a graveyard.”
+ She motioned to the earth beneath them.
+ **“Every warrior buried here—his speed, his strength, his skills—I can borrow them.”
+“Second… I don’t have their souls.”**
+Father Crow’s eyes narrowed.
+ “Then where are they?”
+Zila slowly pointed behind him.
+Father Crow turned—
+—and saw it.
+A towering nightmarish creature, cloaked in smoke and bone, grinning with jagged teeth. In its claws, it clutched two glowing souls—tortured, flickering, unmistakably his fallen generals.
+In that moment, His pupils flared.
+ His entire body radiated with fury. Shadows twisted around him like wings.
+The creature saw it.
+And in the next instant, Father Crow was on it.
+He slammed his fist into the creature’s face with such force that it shattered through three stone walls, splinters and ash exploding outward like a cannon blast.
+The castle shook.
+The garden wilted.
+And Father Crow’s glowing eyes didn’t waver.
+Father Crow kept beating the creature—until it was nothing more than a pile of crushed bone and black ooze. Its face no longer resembled anything alive. The souls trembled in its claw before Father Crow yanked them free.
+Father Crow kept beating the creature—again and again—until it was nothing more than a heap of crushed bone and black ooze.
+ Its face no longer resembled anything alive. The souls trembled in its claw before Father Crow yanked them free with a sharp pull.
+Covered in blood, he turned and walked back to the garden.
+Zila was still there.
+Sitting.
+ Drinking tea.
+ Completely unbothered.
+“I’ve refused to drink tea with you for the last forty-five minutes. Why are you still here?” Father Crow asked, his voice flat, his cloak still slick with blood.
+“It’s been fifty-five minutes,” Zila corrected with a sly grin. “But who’s counting?”
+“You’re not leaving until I drink the tea, are you?”
+“Correct,” she said simply.
+With a tired grunt, Father Crow sat down across from her, the grass beneath him scorching slightly from his aura. He took a sip—bracing for the worst—but was surprised to find the tea was… good. Smooth. Calming.
+His expression softened for just a moment.
+“Fine, you win,” he muttered. “We can do this once a month if you want. So—what did you want?”
+Zila studied him for a long beat, her tone unexpectedly soft.
+“I wanted to know… are you happy?”
+Father Crow didn’t answer right away.
+ His gaze drifted to the souls he’d just freed, then to the distant trees beyond the courtyard. A quiet bitterness settled over him.
+“That’s a stupid question. Are you trying to therapy me?”
+Zila smiled knowingly.
+ “No, no. Of course not. Trying to heal your twisted mind would be a waste of time. Shiashlian already tried. Didn’t really work out, did it?”
+Father Crow glared at her, his expression darkening.
+She leaned back casually.
+ “Anyway, I was wondering—why did you kill that general of yours? His soul was quite powerful. Seemed like a waste.”
+Father Crow answered without hesitation.
+“Before I summoned them, I checked who had done the least. He was powerful, yes—but lazy, disrespectful, and arrogant. I don’t need powerful. I need loyalty. He was neither.”
+Zila nodded slowly.
+ “Interesting. If you like, I can bring back the two you lost.”
+“No,” Father Crow said coldly.
+ “Stop stalling. Why are you really here? Don’t make me ask again.”
+Zila’s aura shifted, the playfulness draining away.
+“Nothing gets past you anymore,” she said softly, sipping her tea. “Oh well. We both know we’ll never see eye to eye. But as the saying goes… keep your friends close, and your enemies closer.”
+“Finally,” Father Crow smirked.
+ “You stop lying. And as you said—you’re playing a dangerous game, drinking tea with the one you plan to kill. I thought killing wasn’t your thing.”
+Zila stared into her cup.
+“It’s been a long time since we first met. And not long ago… I was freed too. But I’m still the same witch. I want to do good. I just know now that doing good… sometimes requires doing what must be done.”
+She looked up, eyes glowing faintly.
+“That includes keeping a very close eye on you—literally and metaphorically. You’re dangerous. You killed Shiashlian.”
+Father Crow’s grin widened.
+“So. Revenge after all.”
+“No. I warned him. I knew you’d kill him. He didn’t listen. I’m not here for revenge.”
+ She rose slowly, setting her cup aside.
+ “I’m here because I believe the Devil let you out too early. That’s why I’m really here.”
+Father Crow set down his empty cup with deliberate finality.
+“Is that so? Well, you can try. But it won’t be easy. I have other things to do, so clean this garden of your traps and leave. And if you’re still here when I return…”
+His hand brushed the hilt of his halberd.
+“I’ll kill you.”
+Zila gave a mocking curtsy.
+ “No need to be so hostile. It was a pleasure as always. Until we meet again, Father Crow.”
+She vanished in a swirl of gray mist, leaving nothing but the faint scent of tea lingering in the cursed garden.
+Father Crow stepped through the rift and entered the realm where one of his fallen generals had died.
+He didn’t come for diplomacy.
+ He came for revenge.
+The great castle loomed before him, its banners still waving proudly in the night wind. But that pride burned away in an instant when he arrived.
+He killed everyone.
+Every soldier.
+ Every courtier.
+ Even the king and queen.
+And he did it with such precise cruelty that it made the castle feel like a grave.
+Only the summoner remained alive—the one responsible for calling forth the nightmare creature that had killed his general. Father Crow knocked him out cold and left him to wake in a hell of his own making.
+When the summoner finally stirred, he found himself in the castle throne room.
+His eyes darted wildly.
+The walls…
+They were covered in the butchered remains of everyone he had ever served beside. Arms, legs, and faces were pinned like grotesque trophies. Even the king and queen were nailed side by side at the top of the throne dais, their lifeless eyes staring down at him.
+The summoner’s stomach twisted. He had seen horrors before—he had dabbled in the darkest of arts—but this? This was beyond anything he could stomach.
+He vomited.
+And in his panic, he ran.
+The summoner fled the castle and made for his hometown, sprinting through the dark woods until his lungs burned. He reached the village just before dawn, soaked in sweat and terror, but relief washed over him when he saw the familiar rooftops.
+Home. Safe.
+He felt no one behind him. He sensed no shadow stalking him.
+He allowed himself to collapse in his parents’ house, too exhausted to think, and eventually drifted into uneasy sleep.
+When he woke, the smell hit him first.
+He opened his eyes and froze.
+They were dead.
+His parents. His siblings. Every loved one he had. Their bodies were torn apart and pinned to the walls of the small home in the same grotesque pattern as the castle.
+Tears blurred his vision as he staggered outside, choking on panic.
+But there was no escape.
+The village streets were lined with stakes, and the corpses of every villager—friends, neighbors, children—were impaled upon them, their blood dripping into the dirt.
+And in the center of it all…
+stood Father Crow.
+His halberd was in his hand, black smoke coiling around it like a serpent. His presence made the world feel smaller, the air colder, reality itself tremble.
+The summoner collapsed to his knees, terror overwhelming him.
+“Why…?” he whispered.
+Father crow stepped forward, halberd in hand, each footfall heavier than the last. His voice was cold as steel.
+“Because what you summoned got its hands on my generals’ souls,” he began, his eyes locked on the trembling summoner. “Naturally, I assumed your creature was the killer. But he was too weak. There’s no way he killed one of my generals—not alone. So I came to find you…”
+He tilted his head, studying the man with visible contempt.
+“And I’ve got to say—I’m disappointed. You’re weaker than the thing you summoned. How in Hell did someone as pathetic as you ever get control of such a creature?”
+The summoner’s lips trembled, but he said nothing.
+Father Crow waved his halberd dismissively.
+ “Doesn’t matter. What does matter is that I know you had powerful allies. And I don’t have the time to hunt them all down. So…”
+He stepped closer.
+“Will you join me? Will you help me find them? I’ll give you the power you need to kill them.”
+The summoner stiffened, anger flickering through his terror.
+ “No! I will never join the side of some psychopath!”
+Father Crow’s expression barely shifted.
+ “Yeah… I thought so.”
+He sighed as though this was all tiresome.
+“Your soul is weak anyway. You wouldn’t have been much use to me. And to think… I considered you as a possible replacement.”
+ His black eyes hardened.
+ “What a waste of time.
+…Well, almost a complete waste of time.”
+The summoner blinked, confused.
+“Your king and queen,” Father Crow continued, “their souls will be useful. So I’ll be taking them.”
+His voice dropped into a near whisper.
+ “Oh, and don’t worry—I’ll let your soul go to the afterlife, or whatever excuse for one you have in this realm, after you die. If you’re reborn…”
+He leaned in close, his voice venomous.
+“…try to find a hobby that doesn’t involve the dark arts. You’re clearly too weak for it. Because if we meet again…”
+He let the threat hang in the air.
+ “…I won’t show you mercy.”
+The summoner’s voice cracked. “That’s what you call mercy?!”
+“Yes,” Father Crow said simply, his halberd resting on his shoulder. “Because I’m capable of much, much worse.
+For example…”
+He snapped his fingers.
+“General Plague. Come.”
+A portal opened behind him, black smoke pouring out. Through it stepped a hulking undead crow over two meters tall, its bandaged form like a cursed mummy. In each clawed hand, it carried a massive greatsword.
+The creature said nothing. Its glowing eyes locked onto the summoner like a predator scenting prey.
+“Plague,” Father Crow commanded, his voice carrying the weight of death itself.
+ “Kill everything you see in this realm. Find every single soul and do as you please—torture them, turn them, destroy them. I don’t care.
+…Except for this one.”
+He pointed at the summoner.
+“This one you simply kill. Quickly.”
+General Plague gave a single slow nod, the chains around its shoulders rattling.
+“Well,” Father Crow said, stepping back and twirling his halberd with casual precision,
+ “I’ll take my leave. Report back to me only after you’ve either turned everyone into the undead… or left nothing alive at all.”
+And with that, Father Crow disappeared, leaving the summoner alone with General Plague and the echo of his final words.
+Father Crow gathered his generals once again.
+ The war chamber was silent as he stepped into the center, his aura thick with power.
+“Before we begin,” he said, his voice cold but deliberate, “Doctor… I’m impressed by your creation. Plague is quite the weapon. It’s only been a few hours, but I can already see the progress he’s made.”
+Emily bowed her head. “Thank you, Father.”
+“Now then…” Father Crow’s black eyes shifted to Caleb. “Caleb. What is our status?”
+Caleb stepped forward, stiff and nervous.
+ “Well, sir, we’ve reclaimed most of the lost territory… but there are still a few areas—”
+“Didn’t I tell you,” Father Crow cut him off, his tone darkening, “that I wanted all of it back? And more?”
+Caleb swallowed. “Yes, Father. But… we saw that you personally handled one of the regions. Another, we’re struggling to even find where the missing general disappeared. And…” He hesitated.
+Father Crow’s voice sharpened. “And?”
+“And there’s one more territory we… failed to conquer,” Caleb admitted.
+“Failed?” Father Crow’s voice cracked like a whip, and the room went cold.
+“Yes, Father,” Caleb said quickly. “There’s a warrior holding the area. He’s… very powerful. We suspect it’s the Overlord Desert King, but he has more abilities than what we know of him. Our forces can’t beat him.”
+Father Crow exhaled heavily through his nose, a sound that made the generals flinch.
+ “Fine. I’ll take care of it myself,” he said at last. Then his gaze locked on Caleb.
+“But, Caleb… this is your last chance.
+ Next time I ask for a report, I expect to hear that you’ve conquered everything I demanded.”
+Caleb stiffened, bowing low. “Yes, Father.”
+“At least this time,” Father Crow continued, “you can take any general you want to assist you. I don’t care who you have to kill or sacrifice—just make it happen.”
+“Yes, Father,” Caleb repeated.
+Father Crow turned, his gaze sweeping over the remaining generals.
+“And the rest of you… you have a little more time. When I return, I expect each of you to have found the strongest warrior you can present to me. Because when I come back…”
+He paused, letting the weight of his words settle like an executioner’s blade.
+“I’ll be testing them. Personally.”
+The room filled with voices as the generals dropped to one knee.
+ “Yes, Father!”
+Satisfied, Father Crow stepped back, his halberd materializing in a storm of shadow.
+“Good. Then prepare yourselves. When I return…”
+ His eyes burned with cold fire.
+ “Failure will no longer be tolerated.”
+Father Crow rose from his throne, halberd in hand.
+“Dismissed.”
+The war chamber emptied in seconds, the generals vanishing like leaves scattered by a storm. Only shadows and silence remained.
+Once the last echo of footsteps faded, Father Crow vanished in a surge of black smoke and reappeared beneath the scorching desert sun.
+The desert stretched endlessly, broken only by crumbling towers and the ruins of ancient temples long claimed by time. Heat rippled across the cracked stone as Father Crow advanced, his halberd dragging across the sand with a slow metallic scrape.
+Then he saw him.
+The Desert King.
+The overlord sat cross-legged in the sand, motionless as a statue. His sword rested upright at his side, hands draped loosely across his knees. His entire form was cloaked and covered, concealing his features in shadow.
+“Father Crow,” the Desert King said at last, his voice a low rumble that carried like wind over stone.
+ “You do remember that overlords are forbidden from fighting one another over territory.”
+Father Crow’s steps didn’t slow.
+“Desert King,” he said evenly. “I apologize for my idiotic generals. Apparently, they couldn’t tell it was you. But to be fair…”
+He stopped several paces away, tilting his head slightly.
+“I don’t know much about you either. Out of all the overlords, you’re the most mysterious. You never share anything. In fact…” He smirked faintly. “I think these are the most words I’ve ever heard you speak.”
+The Desert King didn’t reply.
+“But I do know one thing,” Father Crow continued, his tone sharpening. “The reason you haven’t reported me to Charly is because you want to fight me outside his rules. Isn’t that right?”
+Still, the Desert King remained silent, though his presence seemed to grow heavier.
+Father Crow spun the halberd once in his hand.
+“Let’s make a deal,” he said. “If I win, you give me my territory back and tell me everything I want to know about you. If you win… I’ll report myself and tell you whatever you want to know.”
+The Desert King rose slowly, pulling his massive sword from the ground with a single smooth motion.
+He pointed the blade toward Father Crow.
+“Don’t hold back.”
+Father Crow’s grin widened, abyssal smoke rolling off his shoulders.
+“Wouldn’t dream of it.”
+The duel between the two overlords was as brutal and precise as expected—every strike a test of speed and skill, every counter lethal.
+Father Crow lunged from above with a feint, his halberd streaking through the air in a blur of abyssal smoke.
+The Desert King reacted instantly.
+ He hurled his massive sword upward, intercepting what he thought was the killing blow.
+But it was a trick.
+Father Crow’s real attack came from the front, the halberd cutting a vicious arc aimed to end the fight then and there.
+He was certain the battle was over.
+He was wrong.
+At the last second, the Desert King unleashed a sudden torrent of fire, the blast striking Father Crow full in the chest and sending him flying backward through the air.
+Before he could recover, the Desert King’s sword—still connected by its unseen chains—whipped downward like a guillotine, aimed squarely at Father Crow.
+Father Crow managed to block at the very last moment, the halberd catching the blade in a shower of sparks.
+ But the impact rattled through his entire body, the force driving him deep into the sand.
+He grit his teeth, forcing the sword back with a grunt.
+“I really hate that sword of yours,” Father Crow spat as he regained his footing. “Connected to chains, giving you both long range and close… and now fire?”
+His voice sharpened with curiosity—and a touch of irritation.
+“I wonder what else you can do.”
+The Desert King didn’t answer. His silent stance was answer enough.
+Father Crow’s grip tightened on the halberd, shadows curling around his arms like living smoke.
+“Fine. Guess I’ll find out the hard way.”
+With a sudden burst of speed, he launched forward once more, halberd poised to carve through steel and stone alike.
+Father Crow returned to his castle, stalking the halls until he found Caleb.
+The young commander stiffened as soon as Father Crow approached, nerves visible in the way his hands tightened at his sides.
+Father Crow stopped just in front of him, placing one clawed hand slowly on Caleb’s head.
+ “Caleb… next time you fail—”
+SLAM!
+He smashed Caleb’s head to the ground with enough force to crack the stone beneath him.
+“—know the fucking difference between an overlord and someone who isn’t!”
+Caleb gasped, dazed, blood trailing down his forehead.
+From across the room, Velterra burst out laughing.
+ “Hahaha! You lost to him too!”
+Father Crow’s head turned slowly, his eyes narrowing.
+ “Careful what you say, Velterra… or I’ll take your other arm.”
+Velterra smirked, leaning casually against the wall.
+ “If you take my other arm, you’ll lose one of your best assassins. That would be a shame, wouldn’t it?”
+“I liked you better when you were afraid of me,” Father Crow said coldly.
+“Oh, don’t get me wrong,” Velterra replied, voice dripping with mock cheer. “I still fear you. But this? This is too funny.
+Now then, sir… let Caleb go. It was my idea, not his.”
+“Oh, is that so?” Father Crow’s voice dropped, dangerous.
+Then—he lunged.
+Velterra reacted fast, drawing his weapon and blocking the halberd’s strike with a shower of sparks.
+ “Nice try,” Velterra grinned.
+But Father Crow only smiled.
+He shifted instantly into his child form, closing the distance before Velterra could adjust. He dropped low and snapped Velterra’s feet beneath him, breaking them both with a sickening crack.
+Velterra screamed in pain.
+ “Why, sir?!”
+Father Crow stood over him, cold and unflinching.
+ “Because you need to remember there are worse things than dying… or losing your second arm.”
+He turned, halberd dissolving into black smoke.
+“Oh, right,” he added, glancing back at the writhing Velterra. “I almost forgot—I have to test the generals’ champions.
+Remember, Velterra… don’t fuck with me.”
+And with that, Father Crow left the room, his steps echoing like the toll of a warning bell.
+“Oh, and before you go—can you do something about Velterra?” Father Crow asked, his tone casual but commanding.
+“Yes, sir,” Annabelle replied, stepping over to the injured assassin. With a glow of magic, she began healing his wounds.
+“Thank you, sir,” Velterra muttered as he lay on the ground, still catching his breath.
+“Get up,” Father Crow said coldly. “We have work to do.”
+From that day on, Father Crow began to hold back on his grand plans.
+Instead, he started keeping a rotten, twisted routine:
+Once a month, he met with Zila, sharing bitter tea and stranger conversations.
 
 
+Almost daily, he went on strolls through ruined lands, hunting for broken, forgotten creatures—lost souls, malformed beasts, cursed wanderers. Anything fractured enough to mold.
+
+
+He forced his generals to bring their champions regularly, testing them in brutal trials.
+
+
+Whenever a winged general died, another would be chosen—usually through blood, violence, or betrayal.
+
+
+His aggressive nature became infamous. The legends whispered:
+If you see him—hide.
+ If he sees you—pray.
+ And if he’s interested in you… run.
+But worst of all?
+If you're broken enough to be desperate—if you're willing to do anything just to rise again—then know this:
+ Father Crow will find you.
 
 ---
