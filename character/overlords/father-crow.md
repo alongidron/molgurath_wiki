@@ -32,7 +32,7 @@ Very well. Let me tell you about the one **even gods avoid…**
 ---
 
 ### **Mini Story**
-Father Crow—one of the most powerful, dangerous, and cruel overlords you will ever face—was not always that way. Once, he was known as Gabriel, a creative and joyful child born into the wrong crow clan.
+Father Crow—one of the most powerful, dangerous, and cruel overlords you will ever face— but he was not always that way. Once, he was known as Gabriel, a creative and joyful child born into the wrong crow clan.
 Back in the days of the Crow King, the Crow people were divided into clans. Gabriel belonged to the Hoga Rath, the clan of warriors. But unlike the others, Gabriel studied magic, not combat. For that, he was relentlessly bullied by his parents, his brothers, and nearly every other crow in the clan.
 Only two spared him. His sister Lila, who left the clan when Gabriel was seven due to its cruelty, and one brother, Jakob, who admired Gabriel’s knowledge of magic but did little to protect him.
 As time passed, Gabriel’s heart filled with rage and sorrow. He didn’t blame the crows. He blamed the Crow King, who had forged a cruel and unforgiving society. And so, at the age of eleven, Gabriel left home, wandering the world alone.
