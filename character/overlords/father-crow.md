@@ -4,7 +4,7 @@
 **Size:** 1.7–1.2 meters (varies depending on form)  
 **Magic:** Abyss  
 **Source of Magic:** The God of the Abyss  
-
+Father Crow's source of magic leaves in his mind, which help him realize that he can do anything he wants with the magic of the abyss 
 ---
 ![image](https://github.com/user-attachments/assets/edf1025d-1ba9-4919-be47-9be16afddec8)
 
