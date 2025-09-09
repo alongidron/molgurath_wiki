@@ -160,17 +160,16 @@ To accomplish his new ambition, Father Crow knew he had to expand his empire, gr
 The conquered were not given freedom. Those who survived were shackled beneath his will, forced to wear his cursed masks. In their pain and obedience, his army swelled. But Father Crow sought more than numbers—he demanded order. To enforce this, he established a hierarchy of ranks:
 
 
-**Soldiers** — each strong enough to kill a bear.
+**Soldiers** — each strong enough to kill a bear.  
 
 
-
-Commanders—warriors capable of felling a dragon.
-
-
-Generals—leaders whose strength could crush entire armies.
+**Commanders** — warriors capable of felling a dragon.  
 
 
-Winged Generals—the pinnacle of his forces, beings powerful enough to bring down cities.
+**Generals** — leaders whose strength could crush entire armies.  
+
+
+**Winged Generals** — the pinnacle of his forces, beings powerful enough to bring down cities.  
 
 
 Father Crow’s hunger for strength did not stop with conquest. He collected weapons from fallen enemies, studying their designs, their flaws, and their potential. Through this pursuit, he came to a grim conclusion: the rapier, delicate and demanding, was the most difficult weapon to master. And so he made it his chosen blade, forcing his body and skill to bend to its ruthless precision.
