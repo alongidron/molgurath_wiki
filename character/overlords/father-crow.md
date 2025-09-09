@@ -365,7 +365,6 @@ A nightmarish creature loomed, strangling two souls in its claws. Rage consumed 
 
 Spattered in blood, he returned to Zila’s tea table. She remained seated, unmoved, as if nothing had changed. Exhausted, he relented and shared her tea. Only afterward did he order her to disable her traps before leaving. She obeyed, vanishing as quietly as she had come.
 
----
 
 Still burning with fury, Father Crow hunted down the creature’s kin and unleashed his vengeance, leaving nothing but ruin. Days later, he summoned his generals once more. Caleb admitted all territory had been reclaimed—except for one region, where a single warrior resisted.  
 
@@ -373,7 +372,6 @@ Anger flashed again, but Father Crow let it pass, noting the progress. He declar
 
 The warrior proved to be no mere fighter, but the **Overlord known as the Desert King**. Their battle shook the sands. Despite Father Crow’s abyssal might, the Desert King triumphed. Father Crow, stunned by the king’s strength, withdrew with cold words of apology for his generals’ reckless attempt to challenge such a foe.
 
----
 
 When he returned to his castle, his fury fell on Caleb. He slammed him to the ground for failing to mention that the warrior was an overlord. Yet his temper cooled when the generals returned with their chosen warriors. To his surprise, all survived his brutal trials.  
 
@@ -384,7 +382,6 @@ From that day forward, Father Crow abandoned his grand schemes of conquest. Inst
 - Relentlessly, he forced his generals to present their champions for bloody trials, each test designed to scar them deeper.  
 - Whenever a Winged General fell, another was chosen—through blood, violence, or betrayal.  
 
----
 
 His name became more than a title. It became a warning.  
 **Legends whispered:**  
