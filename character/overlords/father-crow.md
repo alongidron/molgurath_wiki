@@ -147,13 +147,11 @@ Osricain stood before him, seething with fury. His voice was sharp, his anger cl
 
 Father Crow, unshaken, sought to ease his concerns. He summoned forth those allies he had gathered during his years of exile, champions who had bent to his power and carried his mark. Osricain was not impressed at first, but as his gaze lingered on a few familiar faces, he conceded. They were strong enough—for now.
 
----
 
 Days later, the throne room was disturbed once again. This time, by Velmora, an overlord whose power was greater than Father Crow had imagined. Their clash was immediate and merciless, and within moments she had driven him to the brink of death. But before the final strike could fall, Osricain intervened, forcing her back.
 
 Velmora’s expression shifted. She stepped beyond her fury, acknowledging Father Crow as the new ruler. With a smile as sharp as her blade, she promised to spread the word to the other overlords, ensuring they would not rise against him. But Father Crow’s warning was cold—if she did not strike him down now, he would one day kill her. Velmora only shrugged, dismissive, before vanishing into the shadows with a careless wave.
 
----
 
 In the silence that followed, Father Crow sat upon his throne, a new ambition burning within him. It was no longer enough to command the crows, nor to hold his fractured empire. From that day onward, his path was set—he would rise beyond them all. He would become the most powerful overlord.
 
@@ -177,7 +175,6 @@ Winged Generals—the pinnacle of his forces, beings powerful enough to bring do
 
 Father Crow’s hunger for strength did not stop with conquest. He collected weapons from fallen enemies, studying their designs, their flaws, and their potential. Through this pursuit, he came to a grim conclusion: the rapier, delicate and demanding, was the most difficult weapon to master. And so he made it his chosen blade, forcing his body and skill to bend to its ruthless precision.
 
----
 
 To ensure his Winged Generals remained worthy of their station, he imposed two cruel tests.  
 
@@ -185,13 +182,11 @@ To ensure his Winged Generals remained worthy of their station, he imposed two c
 
 **Second:** From time to time, each Winged General was forced to face him directly. These duels were not meant to be won—only survived. To endure even a fraction of his abyssal might and rise again was proof of their strength. To falter was proof of their weakness.
 
----
 
 Over the years, Father Crow’s insatiable hunger for power became a problem for all who dwelled within the realms. Creatures whispered of him with dread, plotted his assassination, and poured their hatred into death wishes against his name. Yet none succeeded.  
 
 To wish for Father Crow’s death demanded a price—a sacrifice no desperate soul could truly afford. Still, the closest attempt came when one dared to wish him bound in ropes upon a set of rails, with a train charged with enough power to kill him rushing forward. It was a simple wish, almost crude in its design, but deadly all the same. At the last instant, Father Crow broke free, escaping the fate meant to claim him.
 
----
 
 But the attempts only grew more desperate, especially after the tale of the warrior. Father Crow had found him on a distant island, a man of strength who impressed even him. When asked to join, the warrior refused.  
 
@@ -201,13 +196,11 @@ That single act sent shockwaves through his ranks. Outrage spread like wildfire,
 
 They struck together, a storm of steel and magic meant to bring him down. But even united, they failed. Their rebellion broke upon him like waves against a cliff, leaving only ruin in its wake.
 
----
 
 The shock did not end there. The echo of his defiance reached farther—into the ears of overlords and into the higher planes themselves. Gods, angered and horrified, abandoned their rivalries and banded together against him. Their fury was boundless, their fear undeniable.  
 
 Yet where divinity seethed, death itself was pleased. Death admired the cruelty, the relentlessness, the certainty of Father Crow’s dominion—and in turn, Death rewarded him.
 
----
 
 **Death rewarded Father Crow three times, each gift deepening his dominion.**  
 
@@ -217,7 +210,6 @@ Yet where divinity seethed, death itself was pleased. Death admired the cruelty,
 
 **Third:** Death placed in his hand a blackened orb pulsing with necrotic power. Within it lay the essence of death itself, a seed from which Father Crow could shape a Death General, a servant whose strength would rival entire armies.
 
----
 
 For a time, these gifts cemented his power. But not all saw war as the answer. A diplomatic overlord named Bell sent Father Crow a peace deal. At first, Father Crow ignored it. Bell, insulted, struck at him while he was already locked in battle against another overlord. Outnumbered and his forces wavering, Father Crow relented and agreed to hear Bell’s terms.  
 
@@ -243,7 +235,6 @@ Once all the overlords had signed their accords, Charly snapped his fingers. An 
 
 The two clashed without restraint. Their battle raged long, each strike shaking the walls of the conjured coliseum. At last, Father Crow prevailed, striking Velmora down. Yet before the dust settled, Charly revived her. Father Crow was dissatisfied with this outcome, but accepted it—it was better than nothing.
 
----
 
 Over the years that followed, Charly’s pact ushered in an uneasy peace. He hosted tournaments where overlords could vent their power upon one another. More often than not, Father Crow was the victor, and the balance held. Life grew so stable that even Father Crow allowed himself small indulgences, taking days off to drink in Charly’s bars.  
 
@@ -255,7 +246,6 @@ The man spoke once: Charly’s message. Father Crow was no longer welcome in his
 
 Rage consumed Father Crow. He turned his fury toward Willow, but she had already slipped away. Furious, he unleashed a single abyssal blast that leveled everything within a three-mile radius. Still unsatisfied, he returned to his castle and dispatched assassins to hunt her down. Days passed, and none returned with success.
 
----
 
 But then Charly’s messenger appeared before Father Crow. With a sly grin, the envoy delivered the offer: in exchange for enough souls, Charly was willing to sell him **the hatchhole**.  
 
@@ -267,7 +257,6 @@ Yet as his gaze lingered on his growing army, another thought pierced his mind. 
 
 And so, leaving his generals to secure the souls, Father Crow went out himself. He would find her. He would end her.
 
----
 
 As he moved through a forest, the air grew heavy with presence. There, upon the path, he was confronted by the god of knowledge—**Oboo**.  
 
@@ -283,7 +272,6 @@ Oboo was devastated when he saw the Dark Guardian fall. His grief left him expos
 
 Before it could land, Oboo vanished.
 
----
 
 Father Crow believed victory was his. Worn and bloodied, he collapsed beneath the shade of a tree to rest. But fate had other designs. Another god of knowledge, **Shiashlian**, appeared in that moment and struck. With a single act of divine will, he transformed Father Crow into a child, erasing all memory of who he truly was.  
 
@@ -298,7 +286,6 @@ As the god’s body crumpled, something stirred within Father Crow. Two new powe
 - The ability to change his age at will.  
 - The ability to alter his appearance, wearing any face he desired.  
 
----
 
 Before he could revel in these gifts, **Zila—the goddess of the undead—** appeared before him. She banished him to hell, sentencing him to trial.  
 
@@ -310,7 +297,6 @@ The devil came to Father Crow with an offer. His demon gods had returned from de
 
 He promised Father Crow two months to prepare his army. If he succeeded, the sentence of infinite death would be reduced greatly. Father Crow agreed without hesitation. With that, the devil returned him to his castle.
 
----
 
 When Father Crow stepped into his domain, chaos greeted him. His lower generals mistook him for an intruder and attacked, but his Winged Generals alone knelt, recognizing their true master’s presence. As he advanced into the throne room, he was met with an unexpected sight: **a clone of himself** sitting upon the throne.  
 
@@ -324,7 +310,6 @@ And so they gathered. Even those once branded as traitors, like **Koronis** and 
 
 A storm was gathering, and Father Crow meant to meet it with everything he had.
 
----
 
 For two months, Father Crow prepared. Every soldier was positioned, every strategy laid bare. The day of reckoning arrived, and he was ready to face all fourteen demon gods.  
 
@@ -344,7 +329,7 @@ Charly snarled, readying another spell—when a blast struck him from the side. 
 
 Father Crow returned to the chaos of the war, only to find that **Staticus** and **Nightmare** were nowhere to be seen. Of the demon gods who remained, only **Mammon** and **Leviathan** still fought. Leviathan fell swiftly, his bulk crashing into the earth. Mammon resisted longer, but in the end, he too was broken.
 
----
+
 
 At last, the battle was over. Father Crow summoned his generals, his shadow stretching across the battlefield, to take account of the survivors and the dead.  
 
@@ -358,7 +343,7 @@ But the devil’s words cut into him. He explained that if even one of the demon
 
 Two more weeks passed in endless suffering. Then, at last, Father Crow was released.
 
----
+
 
 When Father Crow returned to his castle, something felt wrong. A presence lingered that did not belong. He searched until he found it: a blooming garden sprouting in the very heart of his fortress. Roses, moon lilies, and thorned vines coiled around two chairs and a tea table.  
 
@@ -366,7 +351,7 @@ Seated there, sipping calmly, was **Zila—the Witch Goddess of the Undead**.
 
 Annoyance flared in Father Crow, and he attacked her outright, only to be halted by her strange explanation. She claimed she merely wished to share tea. Confused and unwilling to waste time, he ignored her and turned his attention to his generals.
 
----
+
 
 Caleb, shaken by his sudden return, admitted progress was still incomplete. Most territories had been reclaimed, but fifteen generals were faltering, and five more were missing—two confirmed dead. Father Crow masked his rage, sending Caleb to aid the struggling fifteen. But once Caleb departed, he turned on his generals.  
 
