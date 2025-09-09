@@ -127,7 +127,6 @@ When the blood had settled, he called upon the abyss. With his power, he rebuilt
 
 Only then did Father Crow return to his castle, his vengeance complete and his power deepened by the cruelty he had wrought.
 
----
 
 As Father Crow returned, disappointment shadowed his face. Velterra had not donned the mask. Instead, he studied it warily, having seen the agony it brought to those who wore it.
 
@@ -141,7 +140,6 @@ The explanation unsettled Velterra further. The thought of surrendering both his
 
 Father Crow considered the offer and, amused by its humility, accepted. He then gave Velterra his first command: to gather those whose eyes did not glow beneath the masks, and shape them into an army. Not soldiers of glory, but a legion of the broken—an army of failure, bound in darkness to serve his growing empire.
 
----
 
 Then Father Crow returned to his throne room, its doors groaning open beneath his touch. The moment he stepped inside, steel cut through the air—a blade hurled with deadly precision. It missed him by an inch, striking the stone wall.
 
