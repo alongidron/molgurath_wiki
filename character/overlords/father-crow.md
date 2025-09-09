@@ -216,16 +216,17 @@ He traveled to the gathering where Bell and the other local overlords awaited to
 
 Before blood could spill, the air shifted. From the shadows came the demon god Charly, who insisted that a deal must be struck. With his authority, he rewrote the pact, carving slight but crucial changes to sway Father Crow into agreement:  
 
-He would be permitted to walk the inner ring, but could only claim broken souls to strengthen his army.
+
+➤ He would be permitted to walk the inner ring, but could only claim broken souls to strengthen his army.  
 
 
-He was free to act as he saw fit if challenged by another creature.
+➤ He was free to act as he saw fit if challenged by another creature.  
 
 
-He would be granted a special alcohol potent enough to affect even a crow.
+➤ He would be granted a special alcohol potent enough to affect even a crow.  
 
 
-He would be allowed one sanctioned duel to the death with Velmora, under Charly’s watchful eye.
+➤ He would be allowed one sanctioned duel to the death with Velmora, under Charly’s watchful eye.  
 
 
 The changes were acceptable. Father Crow pressed his claw to the parchment and signed, binding himself to the accord—but also securing freedoms that would fuel his rise even higher.  
