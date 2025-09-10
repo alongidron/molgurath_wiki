@@ -32,4 +32,4 @@ A domain of endless void and shadow, where even demons fear to linger.
 ## Layer 9 – The Chaos Seal
 The final layer, where the Chaos God is bound in eternal imprisonment.
 
-[Back to demons](demons.md)
+[Back to demons](../demons.md)
