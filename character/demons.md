@@ -8,3 +8,5 @@ All demons in Hell possess the potential to wield dark magic and to assume a bea
 **Hell info**
 
 - [Hell](demons/hell.md)
+
+[Back to Characters](characters.md)
