@@ -6,6 +6,6 @@ However, about two thousand years after the Age of Chaos, a terrible discovery w
 
 Those who endured the slaughter now carry the heavy burden of their fallen kin. They are dedicated to rebuilding what was lost and work tirelessly to bring back the human race, keeping the memory of their people alive against impossible odds.
 
-[Charlan-Kirreth](Humans/Kirreth.md)
+[Charlan-Kirreth](Humans/Charlan-Kirreth.md)
 
 [Back to Characters](characters.md)
