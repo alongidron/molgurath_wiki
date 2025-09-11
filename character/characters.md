@@ -7,7 +7,7 @@ permalink: /characters
 ---
 
 **Characters**  
-Meet the characters of molgurath.
+Meet the characters of Molgurath.
 
 ---
 
@@ -18,11 +18,12 @@ Meet the characters of molgurath.
 ---
 
 ## Characters
-##  [molgurath](../character/molgurath.md)
+##  [Molgurath](../character/molgurath.md)
 ##  [Supreme Deities](../character/first-deities.md)
 ##  [The Second Gods](../character/second-gods.md)
 ##  [Overlords](../character/overlords.md)
-##  [demons](../character/demons.md)
+##  [Demons](../character/demons.md)
+##  [Humans](../character/human.md)
 ---
 
 [Back to Home](../index.md)
