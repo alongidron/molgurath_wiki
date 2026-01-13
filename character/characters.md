@@ -20,7 +20,7 @@ Meet the characters of Molgurath.
 ## Characters
 ##  [Molgurath](../character/molgurath.md)
 ##  [Supreme Deities](../character/first-deities.md)
-##  [The Second Gods](../character/second-gods.md)
+##  [The Second Gods](../character/warlord.md)
 ##  [Overlords](../character/overlords.md)
 ##  [Demons](../character/demons.md)
 ##  [Humans](../character/human.md)
