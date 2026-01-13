@@ -1,4 +1,4 @@
- #Queen Crule
+#Queen Crule
 
 **Age:** Unknown  
 **Size:** 1.68 
