@@ -38,6 +38,6 @@ The **Overlords’ Agreement** reshaped Grymmwald into a realm of calculated ten
 
 ## Known Overlords
 
-- ###  [Father crow](overlords/Father-Crow.md)
-- ###  [Father crow](overlords/Queen-Cruel.md)
+- ###  [Father crow](overlords/Father_Crow.md)
+- ###  [Father crow](overlords/Queen_Cruel.md)
 [Back to Characters](characters.md)
