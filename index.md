@@ -1,14 +1,14 @@
 ---
 layout: default
-title: molgurath Guide
+title: molgurath Lore
 ---
 
-# molgurath Guide
-## Explore the Guide
+# molgurath Lore
+## Explore the Lore
 ## [Characters](character/characters.md) &nbsp;&nbsp;&nbsp; [Storyline](storyline.md)
 
 
-## Welcome to molgurath Guide Wiki
+## Welcome to molgurath Lore
 
  Use the navigation links above to explore the different aspects of the story.
 
