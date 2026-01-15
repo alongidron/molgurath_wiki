@@ -31,7 +31,7 @@ Very well. Let me tell you about the one **even gods avoid…**
 
 ---
 
-### **Mini Story**
+### **Lore**
 Father Crow—one of the most powerful, dangerous, and cruel overlords you will ever face— but he was not always that way. Once, he was known as Gabriel, a creative and joyful child born into the wrong crow clan.
 
 Back in the days of the Crow King, the Crow people were divided into clans. Gabriel belonged to the Hoga Rath, the clan of warriors. But unlike the others, Gabriel studied magic, not combat. For that, he was relentlessly bullied by his parents, his brothers, and nearly every other crow in the clan.
