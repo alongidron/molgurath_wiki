@@ -10,6 +10,7 @@
 - **Special God Power:** Death for All
 
 ---
+### **Lore**
 
 Death for all is a potent magical ability wielded by Death, which grants him the power to extinguish the life force of any entity or thing at his discretion. This power is indiscriminate; it can target living beings, inanimate objects, and even magic. Essentially, nothing is immune to Death's ability to end its existence. Despite possessing such a formidable power, Death rarely employs it. He views it as unnecessary. However, there was an occasion when Death's use of this power was hinted at. This occurred during a confrontation with Time, likely when the two entities were negotiating or making a pact. Time may have attempted to intimidate Death, prompting Death to subtly remind Time of the immense power he holds and the potential consequences of provoking him.
 
