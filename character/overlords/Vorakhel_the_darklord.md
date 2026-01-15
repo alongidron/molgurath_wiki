@@ -403,3 +403,7 @@ Vorakhel had begun as a stone demon who refused to be a tool.
 
 He ended as an Overlord—ruler of the darkness that once enslaved him.
 <img width="1024" height="800" alt="image" src="https://github.com/user-attachments/assets/67fc85ce-8b07-41f2-be2c-f17b818633b1" />
+
+[Back to Overlord](../overlords.md)
+
+---
