@@ -1,5 +1,4 @@
 # Vorakhel
-
 **Age:** Unknown  
 **Size:** 2.40
 **Magic:** creation, purple fames, later red demon magic 
