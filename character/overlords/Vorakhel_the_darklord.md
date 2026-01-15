@@ -1,8 +1,8 @@
 # Vorakhel
-- **Age:** Unknown  
-- **Size:** 2.40  
-- **Magic:** Creation, purple flames, later red demon magic  
-- **Source of Magic:** Vaelthryx; later the Ancient Red Demon 
+**Age:** Unknown  
+**Size:** 2.40  
+**Magic:** Creation, purple flames, later red demon magic  
+**Source of Magic:** Vaelthryx; later the Ancient Red Demon 
 Ever since Vaelthryx entered Cruel, she has been able to summon pink spears, unleash bursts of pink energy from her lance, create shields, open portals, and greatly increase her strength and speed. Later, after consuming the Red Demon, she retained the same magic—but it became far more powerful. She also gained increased defense and much faster regeneration. 
 ---
 # Lore
