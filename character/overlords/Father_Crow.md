@@ -11,11 +11,13 @@ Father Crow's source of magic leaves in his mind, which help him realize that he
 <div style="color: red; font-weight: bold; text-align: center;">
 
   <p style="margin-bottom: 1400px; font-size: 50px;"> Avoid at all cost</p>
+  [Back to Overlord](../overlords.md)
   <p style="margin-bottom: 1400px; font-size: 50px;"> Highly dangerous</p>
+  [Back to Overlord](../overlords.md)
   <p style="margin-bottom: 1400px; font-size: 50px;"> You will die</p>
+  [Back to Overlord](../overlords.md)
    <p align="center">
-  <a href="https://alongidron.github.io/molgurath_wiki/character/overlords.html">
-    ← Return to Overlords
+ [Back to Overlord](../overlords.md)
   </a>
 </p>
   <p style="margin-bottom: 1400px; font-size: 50px;"> You can move on now</p>
